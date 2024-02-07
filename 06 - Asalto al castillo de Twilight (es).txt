@@ -367,7 +367,7 @@ Trixie, con una mirada molesta, observó a Gallus acercarse.
 
 "No es algo que le concierna".
 
-"¿Que no me concierne? Yo vivo aquí, ¿sabes?, ¡tengo todo el derecho a entrar a mi propia hogar!", reclamó Trixie. Esto era verdad. Aunque Trixie pasaba bastante tiempo en su carruaje, un 70% del tiempo, esto era solo durante sus viajes o eventos que realizaba. Realmente ella sí tenía una habitación en el castillo de Twilight, el cual había recibido de Starlight poco después de que su amiga se mudara ahí. Prácticamente era su segundo hogar.
+"¿Que no me concierne? Yo vivo aquí, ¿sabes?, ¡tengo todo el derecho a entrar a mi propia hogar!", reclamó Trixie. Esto era verdad. Aunque Trixie pasaba bastante tiempo en su remolque, un 70% del tiempo, esto era solo durante sus viajes o eventos que realizaba. Realmente ella sí tenía una habitación en el castillo de Twilight, el cual había recibido de Starlight poco después de que su amiga se mudara ahí. Prácticamente era su segundo hogar.
 
 "¿Este es su hogar? Que yo sepa, el castillo le pertenece a la princesa Twilight. Usted solo vive aquí por su caridad", respondió Gallus en un tono burlón.
 
@@ -597,11 +597,7 @@ La presa había vuelto a escapar. Pero sabía que volvería. Solo debía ser pac
 
 ------
 
-
-
-------
-
-Trixie estudia opciones de destruccion
+*Trixie estudia opciones de destruccion
 
 ------
 
@@ -609,7 +605,7 @@ Trixie estudia opciones de destruccion
 
 ------
 
-Trixie invoca fantasmas
+*Trixie invoca fantasmas
 
 ------
 
@@ -617,7 +613,7 @@ Trixie invoca fantasmas
 
 ------
 
-Trixie contra la manticora
+*Trixie contra la manticora
 
 ------
 
