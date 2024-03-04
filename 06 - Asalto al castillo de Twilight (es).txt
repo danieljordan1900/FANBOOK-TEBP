@@ -897,30 +897,26 @@ Silverstream revisó de inmediato el monitor que llevaba consigo, su rostro se v
 
 ------
 
+Fantasmas, en un mundo moldeado por la magia y habitado por ponis, tales entidades no eran inexistentes. Desde tiempos inmemorables, los fantasmas siempre han sido una presencia fuertemente arraigada dentro de las historias del saber común y el conocimiento arcano, mencionándose su participación en una gran amplitud de relatos donde juegan un rol como un apoyo heroico o uno malvado.
+
+Sin embargo, a pesar de la gran cantidad de historias que involucran a tales entidades, es difícil saber de dónde vienen y cuál es el verdadero propósito que cumplen en el mundo. Por ejemplo, está la historia del fantasma de una sabia dragona que apareció en un reino para protegerlo cuando se encontraba en su momento más difícil. También está la historia del malévolo espíritu del desierto que envenenó la mente de un rey con una ambición desmedida. Ambos relatos, que bordean lo fantástico, no eran sucesos ocurridos en la antigüedad remota, sino eventos recientes que habían sido estudiados exhaustivamente. Por supuesto, que tales estudios solo pudieron corroborar los hechos ocurridos y no se pudo obtener más información de la verdadera identidad de las apariciones.
+
+Sumado a esto, estaba el problema de la poca frecuencia con la cual uno podría encontrarse con semejantes espíritus.
+
+Siendo así, los más sabios solo podían concluir que los fantasmas reposaban en un plano más allá del nuestro, siendo probablemente los vigilantes o instigadores de historias que trascienden más allá de nuestra propia vida o entendimiento.
+
+Los menos sabios, en cambio, solo tendrían más historias con las cuales sorprender a los más jóvenes.
+
+A todo esto, Trixie Lulamoon, una unicornio casi ignorante de estos profundos temas, estaba a punto de vivir una de estas historias...
+
+------
+
 // invocacion fantasmagorica
 
 *	explicacion sobre los fantamas en eqcuestria
 *	presentacion ante trixie
 *	destruccion de la barrera sobre el castillo
 *	liberacion de los fantasmas del control de trixie
-
-Fantasmas, en un mundo moldeado por la magia y habitado por ponis, tales entidades no eran inexistentes. Deste tiempos inmemoriables los fantasmas siempre an sido una presencia fuertemente arraigada dentro de las historias de la fabula comun y el conocimiento arcano, siendo lo que mas varia el rol que cumplen tales entidades, el cual puede ser un papel heroico o uno malvado.
-
-Sin embargo, apesar de la gran cantidad de historias que involucran a tales entidades, es dificil saber de donde vienen y cual es el verdadero proposito que cumplen en el mundo. Por ejemplo esta la historia de la fantasma una poderosa dragona que aparecio en un reino para protegerlo cuando se encontraba en su momento mas dificil. Tambien esta la historia del malevolo espiritu del desierto que enveneno la mente de un rey con una ambicion desmedida. Ambos relatos, que bordean lo fantastico, no eran sucesos ocurridos en la antiguedad remota, sino eventos reciente que habian sido estudiados exahustivamente. Por supuesto que tales estudios solo pudieron corroborar los hechos ocurridos y no se pudo obtener mas informacion de la verdadera identidad de las apariciones.
-
-Sumado a esto, estaba el problema que no es frecuente encontrarse con espiritus.
-
-Siendo asi, los mas sabios solo podian concluir que los fantasmas reposaban en un plano mas alla del nuestro, siendo probablemente los vigilantes o instigadores de historias que trascendias mas alla de nuestra propia vida o entendimiento.
-
-Los menos sabios, en cambio, solo tendria mas historias con las cuales asustar a los mas jovenes. 
-
-Por otro lado. Trixie Lulamon, una unicornio casi ignorante de estos profundos temas, estaba a punto de vivir una de estas historias.
-
-
-
-
-
-
 
 
 
