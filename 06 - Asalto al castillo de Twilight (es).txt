@@ -751,7 +751,7 @@ Frente a las puertas del castillo, la barrera mágica ondeaba como si hubiera si
 
 Un rayo de magia impactó contra la barrera mágica del castillo de Twilight, sacudiéndola hasta la base con una fuerza impresionante. La luz que emanaba de esa violenta agresión, parecida a una soldadura gigante a la distancia, habría sido visible incluso en Canterlot si el ángulo de su brillo hubiera sido favorable.
 
-La responsable de tan colosal despliegue de poder no era otra que la mismísima Trixie.
+La responsable de tan colosal despliegue de poder no era otra que la mismísima Trixie con capa y sombrero.
 
 Después de un largo minuto de ataque continuo que parecía una eternidad, finalmente, el poderoso rayo de magia cedió.
 
@@ -809,7 +809,7 @@ Ahora veía cómo su inversión se diluía con el viento en medio de la pastura.
 
 Después de desbocarse durante un largo rato, poco a poco Trixie se calmó. Exhaló varias veces, hasta que finalmente tomó un aire sereno y dijo:
 
-"Está bien, Trixie, esto solo fue un contratiempo. La costosa urna que compraste, que supuestamente contenía a poderosos fantasmas capaces de destruir reinos enteros, resultó ser un engaño. No es tu culpa, son los demás que se aprovechan de ti. Cosas así te pasan a menudo. Ahora continuemos con algo más seguro ...¡LOS EXPLOSIVOS!" grito Trixie dando terminó a su monólogo con un abrupto gesto de estrés; era evidente que ya no quería pensar más en su reciente pérdida. 
+"Está bien, Trixie, esto solo fue un contratiempo. La costosa urna que compraste, que supuestamente contenía a poderosos fantasmas capaces de destruir reinos enteros, resultó ser un engaño. No es tu culpa, son los demás que se aprovechan de ti. Cosas así te pasan a menudo. Ahora continuemos con algo más seguro ...¡LOS EXPLOSIVOS!" grito Trixie con tanta fuerza que casi se le escapa el sombrero, asi con este abrupto gesto de estrés dio terminó a su monólogo; era evidente que ya no quería pensar más en su reciente pérdida. 
 
 Así, sin más consuelo que decirse a sí misma, comenzó a avanzar hacia su remolque para...
 
@@ -905,39 +905,31 @@ Sin embargo, a pesar de la gran cantidad de historias que involucran a tales ent
 
 Sumado a esto, estaba el problema que era muy dificil encontrarse con estas entidades y aun mas invocarlas.
 
-Siendo así, los más sabios solo podían concluir que los fantasmas reposaban en un plano más allá del nuestro, siendo probablemente los vigilantes o instigadores de historias que trascienden más allá de nuestra propia vida o entendimiento.
+Siendo así, los más sabios solo pueden concluir que los fantasmas reposaban en un plano más allá del nuestro, siendo probablemente los vigilantes o instigadores de historias que trascienden más allá de nuestra propia vida o entendimiento.
 
 Los menos sabios, en cambio, solo tendrían más historias con las cuales sorprender a los más jóvenes.
 
 A todo esto, Trixie Lulamoon, una unicornio casi ignorante de estos profundos temas, estaba a punto de ser parte de una de estas historias...
 
-------
+---------
 
-// invocacion fantasmagorica
-
-*	presentacion ante trixie
-*	destruccion de la barrera sobre el castillo
-*	liberacion de los fantasmas del control de trixie
-
-------
-
-"... con estos deberían ser suficientes. Solo debo tener mucho cuidado de no dejarlos caer ... o tocarlos. ¡Tengo demasiada chispa en mis cascos! Ja ja ja", rió consigo misma Trixie en medio de un alocado delirio después de haber terminado de preparar sus explosivos C-4.
+"... con estos deberían ser suficientes. Solo debo tener mucho cuidado de no dejarlos caer ... o tocarlos. ¡Tengo demasiada chispa en mis cascos! Ja ja ja", rió Trixie en medio de un alocado delirio después de haber terminado de preparar sus explosivos C-4.
 
 A sus espaldas, la barrera mágica que protegía al castillo resplandecía de manera inmaculada.
 
-"Solo esperen, estos fuegos artificiales los sorprenderán...", murmuró Trixie para sus adentros con una sonrisa oscura mientras colocaba con cuidado las bombas en una caja de pasteles.
+"Solo esperen, estos fuegos artificiales los sorprenderán...", murmuró Trixie para sus adentros con una sonrisa oscura mientras colocaba con cuidado las bombas marcadas con su propio rostro en una caja de pasteles.
 
 En su cabeza, Trixie ya imaginaba cómo sus explosivos harían volar por los aires las defensas del castillo. Luego, haría su ingreso triunfal por la puerta principal, donde se encontraría con unos asustados y arrepentidos Young Six, se encargaría de ellos y finalmente se encontraría con Starlight y entonces...
 
 Trixie interrumpió sus pensamientos, alertada por una extraña sensación de ser observada. Bajó la mirada y se encontró con algo que no esperaba.
 
-Frente a ella, a unos pasos, un pequeño conejo blanco la miraba. Era una criatura bastante diminuta y esponjosa con una ternura en su rostro que haría saltar el corazón de cualquier poni que lo viera.
+Frente a ella, a unos pasos, un pequeño conejo blanco la miraba. Era una criatura diminuta y esponjosa con una ternura en su rostro que haría saltar el corazón de cualquier poni que lo viera.
 
 Sin embargo, el encanto del aparente roedor no conmovió el corazón de la gran y poderosa Trixie; en cambio, otra cosa lo hizo.
 
-La pequeña criatura tenía una mirada profunda, triste, como si reflejara la gran pena que sentiría alguien al ver a su mejor amigo perderse en el mal camino.
+La pequeña criatura tenía una mirada profunda y triste, como si reflejara la gran pena que sentiría alguien al ver a su mejor amigo perderse en el mal camino.
 
-Era una mirada que por un instante caló hondo en la conciencia de Trixie.
+Era una mirada que por un instante caló hondo en la conciencia de Trixie. Un breve destello de conciencia que fue rápidamente suprimido por la corrupta magia que nublaba su juicio.
 
 "¡Estoy haciendo lo correcto! ¡Es un buen plan! ¡Starlight haría lo mismo por mí!" gritó molesta Trixie al conejo, poniéndose a la defensiva, presa de la hostilidad que la llenaba.
 
@@ -951,7 +943,7 @@ Estaba equivocada; el inofensivo conejo no la estaba mirando a ella, sino a la p
 
 Dejando caer la caja de explosivos que llevaba (afortunadamente, no explotaron), Trixie abrió mucho la boca y los ojos al contemplar las apariciones que habían surgido a sus espaldas un momento atrás.
 
-Seis figuras, semejantes a espectros equinos, se encontraban materializadas frente a ella. Una neblina oscura y cambiante las envolvía, creando la impresión de un portal hacia un cosmos de tinieblas. Estas figuras espectrales, con expresiones diversas entre sonrientes y severas, con ojos que brillaban como farolas de cementerio, se mantenían firmes en su presencia etérea. Cada una estaba envuelta en una armadura personalizada y vestimenta fantasmal única, indicando roles distintos entre ellas. Sin embargo, a pesar de sus apariencias heterogéneas, todas compartían una misma marca: semejantes a las runas que representan el sol y la luna, colgando de sus flancos, un símbolo que manifestaba la profunda unidad entre ellos.
+Seis figuras, semejantes a espectros equinos, se encontraban materializadas frente a ella. Una neblina oscura y cambiante las envolvía, creando la impresión de un portal hacia un cosmos de tinieblas. Estas figuras espectrales, con expresiones diversas entre sonrientes y severas, con ojos que brillaban como farolas de cementerio, se mantenían firmes en su presencia etérea. Cada una estaba envuelta en una armadura personalizada y vestimenta fantasmal única, indicando roles distintos entre ellas. A pesar de sus apariencias heterogéneas, todas compartían una misma marca: semejantes a las runas que representan el sol y la luna, colgando de sus flancos, un símbolo que manifestaba la profunda unidad entre ellos.
 
 Eran, sin duda, una presencia que intimidaría a cualquiera.
 
@@ -959,25 +951,34 @@ Trixie, que se había mantenido en silencio un buen rato intentando procesar lo 
 
 "¡Los guardianes de Eufalia se presentan ante usted, Oh gran y poderosa invocadora! Esperamos con ansias cumplir con su voluntad", anunció con voz marcial el espectro con la cabeza agachada, tocando en el suelo.
 
-La voz que le había hablado a Trixie había sido más ordinaria (y femenina) de lo que aparentaba la intimidante figura del espectro; sin embargo, este detalle tuvo poca importancia. Las palabras que se habían dicho guardaban una importante verdad.
+La voz que había dirigido la palabra a Trixie resultó más ordinaria y femenina de lo que sugería la imponente figura del espectro; no obstante, este detalle pasó a segundo plano. Las palabras pronunciadas llevaban consigo una verdad crucial.
 
-"... ¿gran y poderosa invocadora?" Trixie solo tardó un instante en entender para luego relinchar emocionada. "¡Hiiiii!"
+"... ¿gran y poderosa invocadora?" Trixie solo necesitó un instante para comprender, y luego soltó un relincho emocionado. "¡Hiiiii!"
 
-Incapaz de contenerse, Trixie agitaba sus cascos en el aire con euforia ante la verdad que tenía ante sí.
+Incapaz de contenerse, Trixie agitaba sus cascos en el aire con euforia ante la realidad que se le presentaba.
 
-En un suceso extraordinario e imprevisible, Trixie Lulamoon había invocado a los poderosos y heroicos guardianes de las olvidadas tierras de Eufalia, un equipo mítico de espectros que ahora estaba bajo su absoluto control.
+En un suceso extraordinario e imprevisible, Trixie Lulamoon había convocado a los poderosos y heroicos guardianes de las olvidadas tierras de Eufalia, un equipo mítico de espectros que habian permanecido sellados en la antigua (y excesivamente cara) urna que habia roto involuntariamente un momento atras y que ahora estaba bajo su absoluto control.
 
-La unicornio celebraba con gusto, entre risas y cabriolas, pero su júbilo fue efímero; la fría aura que emanaba aquel grupo fantasmagórico la hizo recordar la apremiante situación en la que se encontraba. Tosió un momento e intentó guardar compostura lo mejor que pudo; pensó entonces que, si esos fantasmas realmente estaban bajo sus órdenes, estaba en la obligación de mostrarse lo más digna posible ante ellos. Para alguien como ella que vivía de su imagen y palabras, sería sencillo...
+La unicornio celebraba con entusiasmo, entre risas y cabriolas, pero su alegría fue efímera; la fría aura que emanaba aquel grupo fantasmagórico le recordó la apremiante situación en la que se encontraba. Tosió un momento e intentó mantener la compostura lo mejor que pudo; pensó entonces que, si esos fantasmas realmente estaban bajo sus órdenes, estaba obligada a mostrarse lo más digna posible ante ellos. Para alguien como ella, que vivía de su imagen y palabra, sería sencillo...
+
+Trixie agito su capa y ajusto su sombrero, tomando una postura que parecia envolverla en misterio, se presento antes los fantasmas con una mirada soberbia y firme.
 
 "Ejem... Saludos, súbditos míos. En efecto, soy yo quien los ha convocado, yo, la única, la extraordinaria, ¡la gran y poderosa Trixie!", proclamó orgullosa la unicornio a todos a su alrededor.
 
-La líder de los espectros, que anteriormente se había inclinado, alzó la cabeza con atención; detrás de ella, las expresiones mixtas en los rostros nebulosos de sus compañeros se volvieron serias al unísono. Todos clavaron sus ojos en Trixie, demostrando que estaban completamente entregados a cada palabra de su nueva ama.
+La líder de los espectros, que previamente se había inclinado, alzó la cabeza con atención; detrás de ella, las expresiones mixtas en los rostros nebulosos de sus compañeros fantasmas se volvieron serias al unísono. Todos clavaron sus ojos fatuos en Trixie, demostrando que estaban completamente entregados a cada palabra de su nueva ama.
 
 Al notar esas miradas devotas, el corazón de Trixie se embriagó de poder al tener tal atención de tan poderosos seres; convencida de su lealtad, sus pensamientos se soltaron y las palabras comenzaron a fluir libres de su boca.
 
-"Y sin embargo, hoy he sido víctima de una terrible injusticia contra mi persona. Siendo tan humilde y bondadosa con otros, me han privado de ingresar a mi propio hogar. ¡Y aun peor! Se me ha negado la posibilidad de reunirme con la mejor amiga que un poni podría tener en su vida. Así que ustedes, súbditos míos, guardianes de Eufalia, tienen el deber de poner fin a esta injusticia. Esta barrera mágica que envuelve este castillo, mi hogar, debe desaparecer. Les ordeno que usen su poder espectral para deshacerla y permitirme entrar. Que sus energías desgarren y desvanezcan esta barrera, allanando el camino para mi entrada triunfal a mi morada y así reunirme con la amiga que más quiero", proclamó Trixie, extendiendo sus cascos hacia la imponente barrera luminosa que resplandecía detrás de los espectros.
+"Y sin embargo, hoy he sido víctima de una terrible injusticia contra mi persona. Siendo tan humilde y bondadosa con otros, me han privado de ingresar a mi propio hogar. ¡Y aun peor! Se me ha negado la posibilidad de reunirme con la mejor amiga que un poni podría tener en su vida. Así que ustedes, súbditos míos, guardianes de Eufalia, tienen el deber de poner fin a esta injusticia. Esta barrera mágica que envuelve este castillo, mi hogar, debe desaparecer. Les ordeno que usen su poder espectral para deshacerla y permitirme entrar. Que sus energías desgarren y desvanezcan esta barrera, allanando el camino para mi entrada triunfal a mi morada y así reunirme con la amiga que más quiero", proclamó Trixie con gallardía y severidad, su capa ondeaba con el viento mientras apuntaba con su casco hacia la imponente barrera luminosa que resplandecía detrás de los espectros.
 
-Al finalizar su discurso, Trixie observó cómo los guardianes de Eufalia asentían solemnemente, aceptando la orden. Aunque permanecieron inmóviles por un breve instante, sin decir palabra, se elevaron hacia el cielo y se posicionaron en la parte más alta de la barrera mágica que protegía el castillo de Twilight. El ambiente se cargó de tensión mientras la misteriosa magia de los espectros se intensificaba, llevando a cabo la voluntad de Trixie. Abajo, la unicornio observaba con ojos brillantes, anticipando el próximo éxito de su recién adquirido séquito de fantasmas.
+¿Qué había sido todo eso? Ni la misma Trixie estaba segura de lo que estaba hablando. Jamás había escuchado antes sobre "los guardianes de Eufalia". Con este título, los fantasmas se habían presentado, simplemente les estaba siguiendo la corriente y ya. Sabía que la urna antigua que había comprado tenía encerrado a un poderoso grupo de fantasmas, pero nada más.
+
+A todo esto, no estaba segura de qué harían exactamente los fantasmas ahora que les había ordenado destruir la barrera.
+
+Justo cuando un sudor de preocupación empezaba a caer de su frente, Trixie observó cómo los "guardianes de Eufalia" asentían solemnemente, aceptando la orden que les había dado. Aliviada y algo sorprendidad, vio cómo los espectros se elevaban lentamente hacia el cielo y se posicionaban en la parte más alta de la barrera mágica que protegía el castillo de Twilight.
+
+Poco a poco, la atmósfera sobre el castillo empezó a cambiar; el aire se llenó de tensión mientras la misteriosa magia de los espectros se intensificaba. En el suelo, Trixie observaba con ojos brillantes, expectante de la sorprendente magia que podría ocurrir.
+
 
 
 
