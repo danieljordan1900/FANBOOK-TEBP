@@ -58,7 +58,7 @@ No recordaba que su cama estuviera en medio de un camino... ni que sus sábanas 
 
 "Claro... por supuesto..." murmuró, notando dónde estaba.
 
-Tras decir estas palabras, apartó las sábanas de plumas y se levantó de la cama de arena en la que había estado. Inmediatamente se puso de pie.
+Tras decir estas palabras, apartó las sábanas de plumas e inmediatamente levantó de la cama de arena en la que había estado.
 
 Se sentía ligera, totalmente renovada. El sueño que había tenido le había devuelto todo ese carisma y buen ánimo que la caracterizaban. Incluso parecía sentirse con más fuerza que de costumbre.
 
@@ -210,11 +210,11 @@ Así, después de un rato, mientras Drygut volvía a hundirse en su ensoñamient
 
 //------------------------
 
-Las puertas del castillo de Twilight se abrieron de par en par, liberando una luz radiante que iluminaba el exterior. Allí mismo, envueltos por la magia de la armonía, los Young Six dieron el primer paso con Ocellus a la cabeza.
+Las puertas del castillo de Twilight se abrieron de par en par, liberando una luz radiante que iluminaba todo el exterior. En el centor de esa luz, envueltos por la magia de la armonía, los Young Six dieron el primer paso con Ocellus a la cabeza.
 
 "Chicos, todos juntos ahora vamos a..." comenzó a hablar Ocellus.
 
-"¡CASTIGAR A NUESTROS ENEMIGOS CON EL PODER DE NUESTRA AMISTAD!" proclamó Silverstream, interrumpiendo el inminente discurso de su amiga.
+"¡CASTIGAR A NUESTROS ENEMIGOS CON EL PODER DE NUESTRA AMISTAD!" proclamó Silverstream desde atras, interrumpiendo el inminente discurso de su amiga.
 
 "¡VAMOSSS!" respondieron firmes sus compañeros al unísono.
 
@@ -254,13 +254,15 @@ Smolder no terminó sus palabras. Tanto ella como sus compañeros dejaron de hab
 
 Poco a poco, una sombra empezó a asomar sobre la colina y continuó creciendo hasta tomar una forma clara y definida. Era una gran masa negra rectangular, sin divisiones y perfectamente alineada, avanzando hacia ellos. A esa distancia, uno pensaría que se trataba de un insólito bosque negro en movimiento o un conjunto de establos embrujados errantes, pero la realidad era más sorprendente que todo eso.
 
+"TICHHH, TICHHH, TICHHH ..." se escuchaba en su avance.
+
 Eran los pavo-halcones, que marchaban ahora en pie de guerra, listos para el contraataque.
 
 "¿Es una broma, verdad?" exclamó Gallus, sorprendido por aquel raro comportamiento.
 
 Los pavo-halcones eran conocidos por ser aves glotonas, también por ser muy torpes y tontas en la mayoría de los casos. No obstante, el comportamiento que ahora mostraban decía todo lo contrario.
 
-Bien organizados, el gran pelotón de pavo-halcones continuó avanzando; detrás, otros dos pelotones surgieron cubriendo sus flancos. En el cielo, flotas de más pavo-halcones comenzaron a patrullar, fijando su vuelo alrededor del castillo.
+Bien organizados, el gran pelotón de pavo-halcones continuó avanzando orgullo; detrás, otros dos pelotones surgieron cubriendo sus flancos. En el cielo, flotas de más pavo-halcones comenzaron a patrullar, fijando su vuelo alrededor del castillo.
 
 Era como ver un verdadero ejército en movimiento.
 
@@ -276,23 +278,60 @@ Aunque la situación se había vuelto a complicar, el buen ánimo de los Young S
 
 Si pelear era la única solución para proteger a sus amigos, entonces la abrazaría por completo.
 
-El gran elefante de luz dio un gran trompeteo y, en un desafío abierto, se lanzó contra el ejército de pavo-halcones.
+El gran elefante de luz dio un gran trompeteo y, en un desafío abierto, se lanzó contra el ejército de pavo-halcones en la colina.
 
+La batalla contra los pavo-halcones dio inicio...
+
+Alejado de todo esto, cerca de las puertas del castillo, un ensimismado pavo-halcon Drygut (ignorado e ignorando todo lo que pasaba) continuo soñando.
+
+//------------------------
+
+Muy lejos, en los áridos suelos de los más remotos y desolados páramos de aquel mundo, germinaba oculta y frágil una flor única en su tipo.
+
+"Rosa de la Esperanza y Desesperación" era su nombre, y como tal, era una rosa. Pequeña, con pétalos de un rojo vivo, tallo verde claro y aroma primaveral. Tenía espinas como toda rosa, pero sería imposible diferenciarla de cualquier otra si no fuera por su tamaño y por el curioso hecho de que sus espinas no causaban dolor alguno a quien se lastimara con ellas.
+
+Este último detalle era un gran indicativo de su verdadera esencia, ya que esta era una flor mágica. Capaz de otorgar una gran vitalidad a quien la comiera, sin importar cuán al borde de la muerte se encontrase.
+
+Esta misma capacidad la hacía muy codiciada. Tanto sabios como monstruos ansiaban poseerla, y las razones eran bastante obvias. Para la fortuna de la paz del mundo, obtener una sola flor mágica como esta resultaba en una tarea casi imposible.
+
+Se debía a que esta rosa solo nacía en ambientes carentes de vida o magia. Además, su florecimiento solo se daba una vez al año y durante un solo día. Como si eso no fuera suficiente, sus intervalos de aparición eran erráticos, haciéndolos imposibles de predecir.
+
+Hallar una era considerado casi un milagro.
+
+Así pues, la fama de esta rosa era grande. Tanto que incluso bestias como los pavo-halcones eran conscientes de ella, y la buscaban en sus grandes viajes migratorios. Pero no lo hacian por la vitalidad que otorgaba, ni por sus propiedades mágicas exóticas que permitían crear pociones rojas capaces de potenciar el poder de un mago a cambio de un precio. No, su interés era por otro motivo más mundano y propio de estas criaturas.
+
+Su intoxicante e inigualable sabor...
 
 //------------------------
 
 
-->	los Youngs six se enfrentan a los pavo-halcones
 
 
 
-->	los Youngs six se encuentran con Trixie
+
+
+
+
+
+
+
+
+
+
+
 
 
 
 //------------------------
 
-->	pacto con Fathungry
+la batalla esta en apogeo
+
+la batalla es interrumpida po Trixie
+
+Trixie le entrega a Fathungry una cartera gigante llena de las pocion rojas
+
+derpy tomandose fotos con Drygut
+
 
 
 //------------------------
