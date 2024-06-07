@@ -30,7 +30,7 @@ Dejando atrás la agotadora fachada de ingenuidad que había mantenido durante l
 
 Varios meses atrás...
 
-Trixie paseaba alegre a las afueras de Ponyville cuando accidentalmente se encontró con una feria de herramientas y objetos increíbles para espectáculos. Dirigida por un elocuente grupo de camellos, la inocente Trixie quedó fascinada por sus exóticos productos. Confiando en las nobles palabras de los vendedores, gastó una buena parte de su fortuna ahorrada como consejera estudiantil en comprar tales accesorios que, sin duda, harían más grandes e increíbles sus propios espectáculos circenses. Segura de sus acciones y con la bendición de los dueños de la feria, Trixie se marchó con una gran sonrisa, imaginando lo felices que haría a sus amigos cuando compartiera con ellos sus nuevas maravillas.
+(Trixie se encontraba paseando alegre a las afueras de Ponyville cuando accidentalmente se encontró con una feria de herramientas y objetos increíbles para espectáculos. Dirigida por un elocuente grupo de camellos, la inocente Trixie quedó fascinada por sus exóticos productos. Confiando en las nobles palabras de los vendedores, gastó una buena parte de su fortuna ahorrada como consejera estudiantil en comprar tales accesorios que, sin duda, harían más grandes e increíbles sus propios espectáculos circenses. Segura de sus acciones y con la bendición de los dueños de la feria, Trixie se marchó con una gran sonrisa, imaginando lo felices que haría a sus amigos cuando compartiera con ellos sus nuevas maravillas.)
 
 Sí, esta era la explicación imaginaria que Trixie se repetía a sí misma y diría a cualquier otro que descubriera la verdad. Por supuesto, nunca mencionaría que ella se encontraba en esa feria a medianoche. Tampoco mencionaría que la supuesta feria ocurría cada luna en una cueva oscura y desconocida dentro del Bosque Everfree. Ni mucho menos diría que no era la primera vez que hacía negocios con aquellos camellos de aspecto tan sospechoso.
 
@@ -440,4 +440,4 @@ Con una duda que crecía como una supernova en su interior, Trixie, tomando su s
 
 Trixie solo tenía un pensamiento.
 
-Encontrarse con Starlight y confirmar que todo estaba bien.
+Encontrarse con Starlight y confirmar que todo estuviera bien...
