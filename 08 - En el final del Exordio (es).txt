@@ -1,3 +1,5 @@
+Una mariposa negra revoloteaba sobre la verde colina.
+
 Se estaba acabando el tiempo.
 
 //---------
@@ -112,7 +114,7 @@ A sus espaldas, las puertas se cerraron por última vez aquel día.
 
 // -----------------
 
-En el puesto de seguridad del castillo de Twilight, el panel de control del sistema empezo a reiniciarse. En una total oscuridad, uno a uno los monitores se encendieron iluminando el lugar.
+En el cuarto de seguridad del castillo de Twilight, el panel de control del sistema empezo a reiniciarse. En una total oscuridad, uno a uno los monitores se encendieron iluminando el lugar.
 
 Bajo una luz parpadeante y roja, una silueta oscura se sento en la silla del escritorio principal y comenzo a revisar el manual del sistema ...
 
@@ -154,9 +156,9 @@ Y así fue...
 
 "¿Consejera Trixie, usted... no recuerda nada de lo que pasó esta mañana?"
 
-Trixie asintió sin expresión alguna en su cansado rostro. Los Young-Six se miraron entre sí, confundidos.
+Lentamente Trixie asintió sin expresión alguna en su cansado rostro. Los Young-Six se miraron entre sí, confundidos.
 
-"¿Pero cómo...? Usted ya había hablado con Silverstream hace apenas unas horas, incluso había discutido con Ocellus," cuestionó Sandbar, tan sorprendido como los demás.
+"¿Pero cómo...? Usted ya había hablado con Silverstream hace apenas unas horas, incluso había discutido con Ocellus," cuestionó Sandbar, tan incredulo como los demás.
 
 "No sé nada de eso," respondió Trixie, acorralada. "Yo... cuando desperté esta mañana estaba afuera del castillo... ¡en una cama de arena y plumas! ¡Rodeada de pavo-halcones! ¡No sé cómo rayos acabé ahí! Y antes de eso... no recuerdo nada. ¡Les digo la verdad!" terminó implorando Trixie.
 
@@ -210,7 +212,178 @@ Gallus.
 
 Haciendo a un lado sus propias preocupaciones, Trixie se puso de pie y, muy seria, se acercó a Sandbar.
 
-"Cuéntame a detalle qué sucedió ..." En papeles totalmente invertidos, Trixie preguntó en un tono imposible de negar.
+"Cuéntame todo lo qué sucedió ..." En papeles totalmente invertidos, Trixie preguntó en un tono adulto imposible de negar.
+
+// -----------------
+
+"¿Que la consejera Trixie es una changeling?" replicó Gallus, sorprendido.
+
+"Es demasiado absurdo, ¿verdad?" respondió Ocellus, dudosa de su idea.
+
+"Uhmm, no tanto. No lo había pensado..." reflexionó el grifo, tocándose el mentón con una garra.
+
+Ambos se encontraban esperando a Smolder en el pasillo principal del castillo.
+
+"No lo digo en serio, Gallus. Pero eso fue lo que pensé después de conversar con ella antes. Actuaba raro... como si improvisara, igual que..."
+
+"La directora Starlight esta mañana", completó Gallus las palabras de su amiga. "También estaba actuando raro..."
+
+"Espera... tú también lo notaste, pero dijiste que no habías notado nada antes..."
+
+"Antes, cuando el día aún no se había hundido en la locura... uhmm." Gallus, repentinamente reservado, le dio la espalda a su amiga y empezó a reflexionar por su lado.
+
+Extrañada por este comportamiento, Ocellus levantó una ceja mirándolo por detrás.
+
+Entonces, una puerta del segundo piso se abrió y de allí salió ágilmente Smolder.
+
+"¡Ahí están! ¿Y qué tal les fue? ¿Uh...?" dijo Smolder desde arriba mientras descendía en un batir de alas, pero se detuvo al ver los rostros preocupados de los demás.
+
+Sus amigos volvieron la mirada de inmediato hacia ella.
+
+"¿Pasó algo?", interrogó la dragona al llegar con ellos.
+
+"No es nada..." respondió Ocellus.
+
+"¿Smolder, crees que la consejera Trixie sea un changeling?" preguntó de pronto Gallus, ignorando a Ocellus.
+
+"¿Eh?" respondió confundida Smolder por la pregunta.
+
+"¡Gallus, te dije que no lo tomes en serio!" reclamó Ocellus.
+
+"Solo pregunto", se encogió de hombros Gallus, mientras Smolder se rascaba la cabeza.
+
+"Ok, no sé de qué están hablando, pero sobre eso... no lo creo. La consejera no podría ser una changeling, al menos no olía como una", dijo Smolder.
+
+"Espera... ¿puedes diferenciar el olor de un changeling?", repuso sorprendida Ocellus.
+
+"Los dragones tenemos un excepcional sentido del olfato... Además, haber compartido cuarto contigo soportando tus estacionales transpiraciones nocturnas ya me dio una idea bastante clara de a qué huele un changeling."
+
+"¿Podías oler mis transpiraciones nocturnas? Ouch..." una sonrojada Ocellus comenzó a achicarse haciéndose a un lado.
+
+"Bueno, eso es mucha información innecesaria, pero volviendo a lo de antes. Gracias, Smolder, yo tampoco lo creo, pero necesitaba confirmarlo contigo."
+
+"No hay problema. ¿Pero por qué esa pregunta?"
+
+"Pues la verdad, ya no sé qué más pensar... todo ha sido muy raro hoy", respondió Gallus.
+
+"Raro, demasiado raro..." repuso Smolder en un tono más serio. "Revisé arriba en los cuartos superiores del castillo y afuera. No hay señales de la directora o el subdirector. Todo está perfectamente en orden."
+
+"Es lo mismo por acá. El salón del mapa y las otras oficinas estaban limpias. Casi como si lo hubieran dejado así a propósito... ¿Y cómo te fue abajo, Ocellus?"
+
+"Igual. Tal como lo dejamos. Salvo por el cuarto de seguridad que estaba cerrado y no pude ingresar."
+
+"Espera, ¿no tenías la llave?", preguntó Smolder.
+
+"No, se la di al subdirector Sunburst... antes de que desapareciera", respondió Ocellus cabizbaja.
+
+"Uhmm, mal ahí. No debimos darle todas las llaves cuando llegó", reflexionó Gallus.
+
+"¡Qué lío! Pero en serio, ¿en qué estaban pensando? ¡Irse al festival sin decirnos nada!", protestó Smolder de pronto.
+
+"¿Crees que todos se fueron al festival en Canterlot?", preguntó Ocellus algo dudosa.
+
+"¿Qué más podría ser?"
+
+"Pero sin dejar ningún mensaje atrás, Smolder. ¿Así nada más?", señaló Ocellus.
+
+"Los mayores tienen otras prioridades, Ocellus, y la directora a veces también suele ser tan descuidada como su 'amiga'", añadió Gallus.
+
+"Ahí vamos de nuevo con eso..." murmuró cansada Smolder, y no era la única.
+
+"Ya puedes dejar eso, Gallus. Todo el día no has estado más que escupiendo cosas malas sobre la consejera Trixie y eso no nos ha ayudado en nada."
+
+"¿Escupiendo?... Mira, Ocellus, entiendo que tengan una gran estima por la consejera y los demás mayores, pero yo sé lo que vi. Ella es culpable de la invasión de los Orquídea-Pulpos y no sorprendería que sea la culpable de lo que sea que esté pasando ahora."
+
+"¿Así que esa es tu teoría, Gallus? Culparla así, nada más, ¿sin pruebas?", repuso Smolder, molesta.
+
+"Mis ojos me dan la suficiente prueba y mi instinto de grifo me dice que es así."
+
+"Solo es resentimiento, Gallus. Pensaba que eras más maduro que esto."
+
+"Soy lo suficientemente maduro. Tu eres la que esta siendo demasiado ingenua al creer tanto en los mayores y tratar a la consejera como si no pasara nada"
+
+"No estoy siendo ingenua Gallus, ni credula. Estoy siendo justa al darle una oportunidad de redimirse mientras pienso en la seguridad de los demas. Todos pasamos por la misma desgracia semanas atras. ¿Recuerdas? Y no estamos alzando espadas de venganza ahora. Lo superamos, incluso Sandbar que fue el mas afectado lo supero. ¿Por que tu no lo superas?" respondio Ocellus sumamente severa
+
+"¡Tu no estuviste alli!" exploto Gallus con sus plumas erizadas
+
+"¡Basta!" se interpuso Smolder entre ambos amigos que parecian apunto cruzar una linea roja. "Esto no resuelve nada."
+
+Con Smolder de por medio. Tanto Gallus y Ocellus detuvieron su hostilidad y volvieron su mirada a otro lado.
+
+En medio de ese ambiente de incertidumbre Smolder continuo 
+
+"Ocellus, aceptalo, la directora y el subdirector no estan en el castillo ¡Ya lo revisamos dos veces!¡Lo mas probable es que hayan ido al festival sin avisarnos!" 
+
+Ocellus no replico a las palabras de Smolder y solo agito ligeramente las alas de su espalda
+
+"y tu Gallus en serio ¿que es lo que esperas obtener de todo esto? ¿una confesion extra dramatica de la consejera declarandose culpable?"
+
+"No se , tal vez eso" respondio el Grifo en un tono muy desafiante
+
+"No me vengas con eso Gallus, si la consejera hace eso ¿la perdonaras?" pregunto seria Smolder. Ocellus, aun molesta, volvio su atencion para tambien escucharlo.
+
+Gallus no respondio de inmediato. Dio un suspiro, con una mirada algo perdida y triste, se volvio hacia sus amigas.
+
+"No lo se, realmente me dolio mucho ... lo que paso. No sabria por donde empezar." 
+
+"Uhhh" resoplo Smolder. Luego un momento de silencio.
+
+Ocellus, no era ajena a los sentimientos de Gallus, tampoco al hecho de lo muy cansado que se encontraba. En otras condiciones sabia que su amigo no se comportaria de esa manera con ella. El dia habia sido muy dificil. Aquella mañana y tarde habian sido simplemente horribles, preferiria dejar el tema de Trixie para otro momento. Pero, al ver a su amigo en esa condicion era demasiado.
+
+Se sentia como un error, pero tendria que afrontar el problema ahora.
+
+"Volvamos con los demas y ... tengamos con la consejera una conversacion seria sobre lo que paso con los Orquídea-Pulpos." dijo Ocellus en un tono grave. Sus amigos la miraron sorprendidos, los ojos de Gallus parecieron brillar por un momento.
+
+"¡Al fin te descidiste!" exclamo Smolder sonriente "Ya era hora"
+
+"Segura, no estaras cansada ..." respondio Gallus aun sorprendido
+
+"No, esto nos esta haciendo daño. En muchos sentidos. Aclaremos esto de una vez y luego ... vayamos al festival." 
+
+"Me suena a un buen plan" respondio Gallus con una ligera sonrisa, Smolder asintio. Gallus no se veia alegre pero si mas calmado. Guiados por Ocellus los tres amigos volvieron al comedor.
+
+// -----------------
+
+Los relojes marcaban mas de las cuatro de la tarde. Ocellus, Smolder y Gallus llegaron a las puertas del comedor.
+
+"Bueno ... dejenme empezar a mi. ¿Alguna pregunta?" dijo Ocellus sin voltearse antes de abrir la puerta.
+
+"¿Si la consejera intenta huir puedo atraparla?" pregunto Smolder desde atras
+
+"Si hazlo" respondio Ocellus poco entusiasta
+
+"¡Bien!" exclamo Smolder. Ocellus rodo los ojos.
+
+"Uhmm ... ¿Gallus?" dijo Ocellus 
+
+"No te interrumpire. Palabra de Grifo" respondio Gallus. Ocellus no lo vio, pero se imagino a su amigo haciendo un juramento. 
+
+Ocellus sonrio mientras miraba la madera de la puerta en frente suyo.
+
+"Bueno, uff... ¿algo mas que me olvide?"
+
+"Cuida de ellos Ocellus. ¡Por favor!" se escucho otra voz.
+
+"Por supuesto que lo hare..." Ocellus detuvo sus palabras al reconocer la voz, inmediatamente se volteo y miro atras sorprendida.
+
+Ahi solo estaban Smolder y Gallus, en un pasillo vacio, nada mas ...
+
+"¿Pasa algo?" pregunto Smolder
+
+"¿Princesa Twilight?" murmuro Ocellus aun desconcertada por la misteriosa voz de antes.
+
+De pronto las puertas del comedor se abrieron.
+
+"¡Donde estaban!¡Tenemos un pequeño ... digo gran problema aqui!" exploto una nerviosa Silvestream al recibirlos. Sorprendiendo a Ocellus y al resto.
+
+"¡Que ocurrio! ¿Trixie escapo?" avanzo Gallus con una mirada afilada.
+
+"Nooo ... creo que es lo opuesto." dijo Silverstream aun nerviosa dejando pasar al grupo.
+
+Dentro del comedor, a lado de la mesa, una llorosa Trixie se terminaba de limpiar los mocos frente aun incomodo Sandbar y Yona, a un lado se encontraba con una tacho totamente lleno de bolas de papel higienico y pañuelos embarrados.
+
+"La consejera Trixie tiene una confesion extra dramatica que hacernos en conjunto" finalizo Silvestream antes de cerrar la puerta del comedor.
+
 
 
 
