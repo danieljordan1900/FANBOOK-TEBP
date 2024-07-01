@@ -216,6 +216,8 @@ Haciendo a un lado sus propias preocupaciones, Trixie se puso de pie y, muy seri
 
 // -----------------
 
+-> esta parte de la conversacion de Ocellus puede mejorarse
+
 "¿Que la consejera Trixie es una Changeling?" replicó Gallus, sorprendido.
 
 "Es demasiado absurdo, ¿verdad?" respondió Ocellus, dudosa de su idea.
@@ -346,11 +348,7 @@ Se sentía como un error, pero tendría que afrontar el problema ahora.
 
 Los relojes marcaban más de las cuatro de la tarde cuando Ocellus, Smolder y Gallus llegaron a las puertas del comedor.
 
-Antes, cuando había dejado ese lugar, Ocellus estaba muy confundida por todo lo ocurrido, tanto que les había pedido a los demás que hicieran una lista de posibles teorías sobre por qué no encontraban ni a la directora ni al subdirector en el castillo.
-
-Ahora que regresaba, Ocellus se encontraba decidida y con la mente totalmente clara.
-
-"Bueno... déjenme empezar a mí. ¿Alguna pregunta?" dijo Ocellus sin voltearse antes de abrir la puerta del comedor.
+"Bueno... déjenme empezar a mí. ¿Alguna pregunta?" dijo Ocellus sin voltearse antes de abrir la puerta.
 
 "¿Si la consejera intenta huir, puedo atraparla?" preguntó Smolder desde atrás.
 
@@ -386,7 +384,7 @@ De pronto, las puertas del comedor se abrieron de golpe.
 
 Dentro del comedor, al lado de la mesa, una llorosa Trixie se terminaba de limpiar los mocos frente a un incómodo Sandbar y Yona. A un lado, se encontraba un tacho totalmente lleno de bolas de papel higiénico y pañuelos embarrados.
 
-"Después de una larga charla discutiendo sobre lo ocurrido hoy, en el marco de mi primera teoría, quiero decir la convergencia de eventos desafortunados y malas decisiones que pasaron. La consejera Trixie tiene una confesión extra dramática que hacernos en conjunto," finalizó rápidamente Silverstream antes de cerrar la puerta del comedor.
+"Después de una larga charla discutiendo sobre lo ocurrido hoy. La consejera Trixie tiene una confesión extra dramática que hacernos en conjunto," finalizó rápidamente Silverstream antes de cerrar la puerta del comedor.
 
 // -----------------
 
@@ -559,15 +557,15 @@ Extrañados Ocellus y el resto se acercaron a su amiga hipogrifo.
 
 "... mariposas negras" murmuro en un tono oscuro Silverstream
 
-"¿Ahh?" replico Sandbar 
+"¿Uhm?" replico Sandbar 
 
-"¿No es raro?" pregunto Silverstream de pronto a sus amigos.
+"Es mi teoria" dijo Silverstream de pronto a sus amigos.
 
 "¿Sobre ... lo ocurrido hoy?" completo Sandbar dudoso
 
 "Si, ¡Hoy!, la consejera viniendo en la mañana, la barrera, la manticora, los pavo-halcones ... "
 
-"Creo que antes habias mencionado que todo lo ocurrido hoy habia sido causado por una convergencia de eventos desafortunados y malas desiciones" respondio Ocellus recordando la explicacion que Silverstream les habia dado cuando habian regresado al comedor.
+"Creo que antes habias mencionado que tu teoria era que todo lo ocurrido hoy habia sido causado por una convergencia de eventos desafortunados y malas desiciones" respondio Ocellus recordando la explicacion que Silverstream les habia dado cuando habian regresado al comedor.
 
 "Si, esa fue mi primera teoria ..." dijo Silverstream volviendo su mirada a Trixie
 
@@ -581,7 +579,7 @@ Extrañados Ocellus y el resto se acercaron a su amiga hipogrifo.
 
 "No, no, escuchen creo si podria tratarse de eso. ¡Esto es serio chicos!" reclamo Silverstream
 
-"No pudes dejarlo para mañana o contarlo en el camino"
+"Por favor Silvi, no pudes dejarlo para mañana o contarlo en el camino" acoto Sandbar tambien cansado
 
 "No" respondio firme Silverstream
 
