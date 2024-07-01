@@ -346,7 +346,11 @@ Se sentía como un error, pero tendría que afrontar el problema ahora.
 
 Los relojes marcaban más de las cuatro de la tarde cuando Ocellus, Smolder y Gallus llegaron a las puertas del comedor.
 
-"Bueno... déjenme empezar a mí. ¿Alguna pregunta?" dijo Ocellus sin voltearse antes de abrir la puerta.
+Antes, cuando había dejado ese lugar, Ocellus se encontraba muy confundida por todo lo ocurrido, tanto que les había pedido a los demás que hicieran una lista de posibles teorías sobre por qué no encontraban ni a la directora ni al subdirector en el castillo.
+
+Ahora que regresaba, Ocellus se encontraba decidida y con la mente totalmente clara.
+
+"Bueno... déjenme empezar a mí. ¿Alguna pregunta?" dijo Ocellus sin voltearse antes de abrir la puerta del comedor.
 
 "¿Si la consejera intenta huir puedo atraparla?" preguntó Smolder desde atrás.
 
@@ -382,7 +386,7 @@ De pronto, las puertas del comedor se abrieron.
 
 Dentro del comedor, al lado de la mesa, una llorosa Trixie se terminaba de limpiar los mocos frente a un incómodo Sandbar y Yona. A un lado, se encontraba un tacho totalmente lleno de bolas de papel higiénico y pañuelos embarrados.
 
-"Después de una larga charla discutiendo sobre lo ocurrido hoy, en el marco de mi primera teoría, quiero decir la convergencia de eventos desafortunados y malas decisiones que pasaron. La consejera Trixie tiene una confesión extra dramática que hacernos en conjunto," finalizó Silverstream antes de cerrar la puerta del comedor.
+"Después de una larga charla discutiendo sobre lo ocurrido hoy, en el marco de mi primera teoría, quiero decir la convergencia de eventos desafortunados y malas decisiones que pasaron. La consejera Trixie tiene una confesión extra dramática que hacernos en conjunto," finalizó rapida Silverstream antes de cerrar la puerta del comedor.
 
 // -----------------
 
@@ -531,11 +535,11 @@ Animados por dar por finalizado aquel horrible día, el grupo de amigos comenzó
 
 Tras unos minutos haciendo la rapida tarea. Los Young-Six habian dejado la cocina tan limpia como lo encontraron.
 
-Cerca de la puerta estaban listos para irse. Trixie aun estaba en su asiento, comia unas galletas que le habia dejado los chicos.
+Cerca de la puerta, el grupo de amigos estaba listos para irse. Trixie aun estaba en su asiento, comia unas galletas que le habia dejado los chicos.
 
 "Ya nos retiramos ... uhmm Trixie" dijo Ocellus despidiendose
 
-"Aja ... no se preocupen, esperare a Starlight aqui ..." respondio Trixie cabizbaja sin mirarlos.
+"Aja ... no se preocupen, esperare a Starlight aqui ..." respondio Trixie cabizbaja sin mirarlos. Eran las primeras palabras que recibia despues que la sentenciaran.
 
 "Bueno, entonces ... " se detuvo Ocellus "¿Uh?"
 
@@ -559,25 +563,37 @@ Extrañados Ocellus y el resto se acercaron a su amiga hipogrifo.
 
 "¿No es raro?" pregunto Silverstream de pronto a sus amigos.
 
-"¿Sobre todo lo ocurrido hoy...?" 
+"¿Sobre ... lo ocurrido hoy?" completo Sandbar dudoso
 
 "Si, ¡Hoy!, la consejera viniendo en la mañana, la barrera, la manticora, los pavo-halcones ... "
 
-"Creo que antes habias mencionado que todo lo ocurrido hoy habia sido causado por una convergencia de eventos desafortunados y malas desiciones" respondio Ocellus
+"Creo que antes habias mencionado que todo lo ocurrido hoy habia sido causado por una convergencia de eventos desafortunados y malas desiciones" respondio Ocellus recordando la explicacion que Silverstream les habia dado cuando habian regresado al comedor.
 
 "Si, esa fue mi primera teoria ..." dijo Silverstream volviendo su mirada a Trixie
 
-"¿cual es la segunda?" pregunto Gallus algo interesando
+"¿Ok? ¿Tienes otra?" pregunto Gallus algo interesando
 
-"Efecto mariposas negras" dijo muy seria
+" Si. Efecto mariposas negras" dijo muy seria con los ojos puestos en Trixie
 
-"¿A?" exclamaron los demas. Nadie de los Young-Six habia escuchado antes de eso.
+"¿A?" exclamaron los demas. Nadie de los Young-Six habia escuchado antes de eso. Incluso Trixie que estaba escuchando todo no pudo evitar exclamar de la misma forma.
+
+"Silverstream ya no es necesario que sigas pensando en eso. Se que les pedi a todos la ayuda con ideas para saber que estaba pasando, pero ya arreglamos el problema, de cierta forma ... asi que ya puedes dejarlo"
+
+"No, no, escuchen creo si podria tratarse de eso. ¡Esto es serio chicos!" reclamo Silverstream
+
+"No pudes dejarlo para mañana o contarlo en el camino"
+
+"No" respondio firme Silverstream
+
+"Mira Silverstream. No tenemos idea de que hablas. Pero si dices que es mas importante que descansar despues de este dia horrible, te escucho" respondio Smolder incomoda, el resto tambien se veia igual.
+
+""
 
 
 
 
 
-// por separado yona, sandbar y Silvestream le cuentan a Trixie el accidente de los orquidea pulpos
+// por separado yona, sandbar y Silverstream le cuentan a Trixie el accidente de los orquidea pulpos
 
 // por separado en la cocina smolder, gallus y ocellus discuten sobre trixie
 
