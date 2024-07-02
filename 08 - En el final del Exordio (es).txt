@@ -130,7 +130,9 @@ Silverstream no había parado de hablar, incluso después de que varios de sus c
 
 "Ajá..." respondió mecánicamente la unicornio.
 
-Yona llenó su taza, y también la de Sandbar, que observaba preocupado la escena, especialmente a Trixie.
+Yona llenó su taza, y también la de Sandbar, que observaba preocupado la escena, especialmente a Trixie. Ocellus y los otros antes de dejar el comedor le habian pedido en privado que la vigilara y avisarles si hacia algo raro. 
+
+("¿Hacer al raro?") penso Sandbar angustiado. Incluso alguien como el, no podia evitar pensar que todo lo relacionado a Trixie aquel dia era raro.
 
 "... entonces usted dijo, 'así que no te preocupes, solo hazlo' y aquí estamos, aunque ahora que lo pienso... ¿no debería contar también lo que los demás podrían estar pensando? ¡Ay, lo siento! ¡Empezaré de nuevo!"
 
@@ -202,7 +204,7 @@ Mientras sus amigos la observaban incómodos, Trixie continuó.
 
 "Eso pasó durante mi ausencia... ¿la invasión de los Orquídea-Pulpos, verdad?" preguntó absorta.
 
-"Sí, eso realmente pasó," confirmó poco entusiasta Sandbar. "Pero no se preocupe, consejera Trixie. Ya me encuentro mejor y comenzaré mi rehabilitación la próxima semana. Además, todos los Orquídea-Pulpos fueron capturados, aunque el bosque aún está en cuarentena. No ha habido ningún incidente reciente, así que es probable que ya no quede ninguno."
+"Sí, eso desafortunadamente pasó," confirmó poco entusiasta Sandbar. "Pero no se preocupe, consejera Trixie. Ya me encuentro mejor y comenzaré mi rehabilitación la próxima semana. Además, todos los Orquídea-Pulpos fueron capturados, aunque el bosque aún está en cuarentena. No ha habido ningún incidente reciente, así que es probable que ya no quede ninguno."
 
 Al terminar de hablar, Yona y Silverstream asintieron, confirmando las palabras tranquilizadoras de su amigo.
 
@@ -216,17 +218,35 @@ Haciendo a un lado sus propias preocupaciones, Trixie se puso de pie y, muy seri
 
 // -----------------
 
--> esta parte de la conversacion de Ocellus puede mejorarse
+Ocellus estaba teniendo problemas para aclarar su mente. El ataque de los pavo-halcones, la negociación con Fathungry, la posterior conversación afuera del castillo... Sumado a eso, los sucesos acontecidos desde la mañana habían incrementado su confusión.
 
-"¿Que la consejera Trixie es una Changeling?" replicó Gallus, sorprendido.
+Y por supuesto, todo giraba en torno a Trixie y su impredecible comportamiento.
+
+("¿Cómo puede estar tan tranquila la consejera conversando con los pavo-halcones y luego con nosotros? ¿Acaso ha perdonado a todos así nada más? ¿O podría estar planeando una horrible venganza posterior?") Así había pensado Ocellus, poco después de que los pavo-halcones se marcharan y se quedaran solo con Trixie.
+
+Lo que ocurrió después destruyó todas las expectativas que había imaginado.
+
+Totalmente indiferente, Trixie había conversado con ella y los demás como si fuera otro día normal, como si nada de lo ocurrido esa mañana jamás hubiera pasado. No solo eso, su desconcertante estado físico sin daño o cansancio contrastaba duramente con la grave situación de vida o muerte en la que había estado minutos antes.
+
+La sonrisa confiada de Trixie, sus gestos tan naturales y ordinarios, sus palabras tan propias de su persona, habían sembrado el desconcierto (y el miedo) en el corazón de Ocellus.
+
+En ese inquietante escenario, la idea de que Trixie hubiera caído en la demencia absoluta golpeó fuerte a Ocellus, tanto que estuvo a punto de decírselo.
+
+Pero... no lo dijo. Se sentía estúpida de decirlo. Aún más... se sentía cansada.
+
+No era la única. Sus compañeros se encontraban en las mismas. Así, pensando en los demás, no protestó ante la idea de ir a almorzar primero, descansar, salir a ventilarse y luego...
+
+Compartir algunas de sus 'inseguridades' con sus compañeros...
+
+"¿Que la consejera Trixie es una changeling?" replicó Gallus, sorprendido.
 
 "Es demasiado absurdo, ¿verdad?" respondió Ocellus, dudosa de su idea.
 
 "Uhmm, no tanto. No lo había pensado..." reflexionó el grifo, tocándose el mentón con una garra.
 
-Ambos se encontraban esperando a Smolder en el pasillo principal del castillo.
+Ambos, Ocellus y Gallus, se encontraban esperando a Smolder en el pasillo principal del castillo. 
 
-"No lo digo en serio, Gallus. Pero eso fue lo que pensé después de conversar con ella antes. Actuaba raro... como si improvisara, igual que..."
+"No lo digo en serio, Gallus. Sé reconocer a otro de mi especie. Pero eso fue algo que pensé después de conversar con ella antes. Actuaba raro... como si improvisara, igual que..."
 
 "La directora Starlight esta mañana", completó Gallus las palabras de su amiga. "También estaba actuando raro..."
 
@@ -234,7 +254,7 @@ Ambos se encontraban esperando a Smolder en el pasillo principal del castillo.
 
 "Antes, cuando el día aún no se había hundido en la locura... uhmm." Gallus, repentinamente reservado, le dio la espalda a su amiga y empezó a reflexionar por su lado.
 
-Extrañada por este comportamiento, Ocellus levantó una ceja mirándolo por detrás.
+Extrañada por este comportamiento, Ocellus levantó una ceja mirándolo por detrás. Gallus tambien estaba actuando raro...
 
 Entonces, una puerta del segundo piso se abrió y de allí salió ágilmente Smolder.
 
@@ -286,7 +306,7 @@ Sus amigos volvieron la mirada de inmediato hacia ella.
 
 "¿Qué más podría ser?"
 
-"Pero sin dejar ningún mensaje atrás, Smolder. ¿Así nada más?", señaló Ocellus.
+"Pero sin dejar ningún mensaje atrás. ¿Así nada más?", señaló Ocellus.
 
 "Los mayores tienen otras prioridades, Ocellus, y la directora a veces también suele ser tan descuidada como su 'amiga'", añadió Gallus.
 
@@ -340,7 +360,7 @@ Se sentía como un error, pero tendría que afrontar el problema ahora.
 
 "¿Segura? No estarás cansada..." respondió Gallus aún sorprendido.
 
-"No, esto nos está haciendo daño. En muchos sentidos. Aclaremos esto de una vez y luego... vayamos al festival."
+"No, esto nos está haciendo daño. En muchos sentidos. Aclaremos esto de una vez, tambien lo de hoy y luego... vayamos al festival."
 
 "Me suena a un buen plan," respondió Gallus con una ligera sonrisa. Smolder asintió. Gallus no se veía alegre, pero sí más calmado. Guiados por Ocellus, los tres amigos volvieron al comedor.
 
@@ -444,7 +464,7 @@ Los Young-Six, que habían vuelto sus miradas a Ocellus, parecían haber llegado
 
 Asi sentencio Ocellus a Trixie en un tono grave imposible de negar.
 
-"Está bien, lo haré," respondió Trixie, sinceramente arrepentida.
+"Está bien, lo haré," respondió Trixie, sinceramente arrepentida, limpiandose mas mocos.
 
 Ocellus suspiró. Parecía que un gran peso había bajado de su espalda.
 
@@ -480,7 +500,7 @@ No eran las palabras que esperaban. Los sentimientos de Trixie volvieron a caer 
 
 Un silencio en la sala. Toda la atmósfera cambió de pronto.
 
-"¿Tú... qué?" exclamó Smolder furiosa. A su lado, Ocellus parecía estar en shock.
+"¿Tú... qué?" exclamó Smolder furiosa. A su lado, Ocellus parecía estar en shock. Atras, el resto de sus compañeros se veia igual.
 
 "Nadie en el ayuntamiento tomó en serio mi testimonio. Tenía que hacer algo para que se hiciera justicia. Así que pensé que si ellos no me escuchaban, entonces otros podrían hacerlo..." comenzó a hablar Gallus nervioso.
 
@@ -514,7 +534,7 @@ Otro detalle a tener en cuenta era que los Young-Six no sabían nada de la posib
 
 Todos se detuvieron un momento después de escucharla y ver a Sandbar en su silla de ruedas. Los sentimientos alterados en el ambiente se enfriaron.
 
-("Trixie le da su total apoyo a esa idea, ahhh...") votó Trixie en silencio, consolándose a sí misma desde su asiento.
+("Ex-amiga Trixie le da su total apoyo a esa idea, ahhh...") votó Trixie en silencio, consolándose a sí misma desde su asiento.
 
 "Creo que será mejor hacer eso. Ya no me siento con fuerzas para ir al festival," respondió Ocellus, irritada.
 
