@@ -114,9 +114,7 @@ A sus espaldas, las puertas se cerraron por última vez aquel día.
 
 // -----------------
 
-En el cuarto de seguridad del castillo de Twilight, el panel de control del sistema empezo a reiniciarse. En una total oscuridad, uno a uno los monitores se encendieron iluminando el lugar.
 
-Bajo una luz parpadeante y roja, una silueta oscura se sento en la silla del escritorio principal y comenzo a revisar el manual del sistema ...
 
 // -----------------
 
@@ -366,7 +364,10 @@ Se sentía como un error, pero tendría que afrontar el problema ahora.
 
 // -----------------
 
-Los relojes marcaban más de las cuatro de la tarde cuando Ocellus, Smolder y Gallus llegaron a las puertas del comedor.
+
+//	----------------
+
+Los relojes marcaban más de las tres de la tarde cuando Ocellus, Smolder y Gallus llegaron a las puertas del comedor.
 
 "Bueno... déjenme empezar a mí. ¿Alguna pregunta?" dijo Ocellus sin voltearse antes de abrir la puerta.
 
@@ -623,7 +624,14 @@ Los cansados Young-Six no hicieron más preguntas a Trixie. En cambio, comenzaro
 
 La misma Trixie tampoco quería averiguarlo. Ella solo quería estar sola.
 
-Recostándose sobre la mesa del comedor, una silenciosa Trixie volvió a hundirse en su nostalgia, rodeándose de mariposas de papel.
+Recostándose sobre la mesa del comedor, rodeándose de mariposas de papel, una silenciosa Trixie volvió a hundirse en su nostalgia.
 
-// -------
+//	------
 
+los young son sorprendidos por la media noche
+
+//	------
+
+El tiempo se habia acabado.
+
+La medianoche los habia alcanzado.
