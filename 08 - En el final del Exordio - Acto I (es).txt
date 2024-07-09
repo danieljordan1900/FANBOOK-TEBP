@@ -8,7 +8,7 @@ Habían pasado varios minutos desde que los pavo-halcones se hubieran marchado. 
 
 "Sí, ni lo menciones. Todos esos pavo-halcones, qué loco...," rió Trixie algo forzada.
 
-"Sí, muy loco... ¿Quién podría haberlos llamado?" añadió Gallus en voz baja, pero en medio de la infructuosa conversacion, fue claramente escuchado.
+"Sí, muy loco... ¿Quién podría haberlos llamado?" añadió Gallus en voz baja, no obstante en medio de la infructuosa conversacion, fue claramente escuchado.
 
 Todos voltearon a ver a Gallus de inmediato, incómodos, pero a él no pareció importarle y siguió mirando a otro lado.
 
@@ -36,7 +36,7 @@ Pero en situaciones como esa, se suponía que contaba con Starlight como seguro.
 
 El pánico inundaba a Trixie; en medio de un razonamiento equivocado, los recuerdos de haber pasado por algo similar antes llegaban a ella como rocas.
 
-Muchas lunas atrás, Trixie y Starlight habían ido a un evento de caridad en Manehattan, donde, tras conocer a muchos ponis, terminaron siendo invitadas a una gran fiesta en el club nocturno más popular de esa gran ciudad. Sin nada que perder, solo queriendo divertirse, ambas amigas terminaron yendo a aquel lugar.
+Muchas lunas atrás, Trixie y Starlight habían ido a un evento de caridad en Manehattan, donde, tras conocer a muchos corceles, terminaron siendo invitadas a una gran fiesta en el club nocturno más popular de esa gran ciudad. Sin nada que perder, solo queriendo divertirse, ambas amigas terminaron yendo a aquel lugar.
 
 Cuando despertaron al día siguiente (sin memoria alguna de la noche anterior), se encontraron muy juntas en la cama, en el cuarto de Maud, con un amarrado Sunburst atrapado en el baño de la casa. Ignorando el disfraz de princesa Twilight que tenía puesto Trixie, el uniforme militar de Starlight, las cadenas de Sunburst y la gran cantidad de botellas de sidra en el suelo, el grupo de amigos (incluyendo a Maud) juró nunca más volver a mencionar aquel incidente en sus vidas.
 
@@ -86,7 +86,7 @@ Ninguno de los Young-Six había comido. Los constantes incidentes de aquel día 
 
 De este modo, por fin, despues de dia infernal lleno de contratiempos, Trixie, acompañada de los Young-Six, ingresó al castillo de Twilight.
 
-Apenas tras cruzar las puertas, la astuta Trixie decidió hacer su movimiento.
+Apenas tras cruzar las puertas, decidió hacer su astuto movimiento.
 
 "Ehmm... Silverstream, querida," dijo Trixie sin voltearse.
 
@@ -109,10 +109,6 @@ Asi continuo hablando Silverstream rápida y casi sin respirar. Adelante de ella
 Con una idea completamente equivocada de la situación, Trixie marchaba hacia su destino.
 
 A sus espaldas, las puertas se cerraron por última vez aquel día.
-
-// -----------------
-
-
 
 // -----------------
 
@@ -370,9 +366,6 @@ Se sentía como un error, pero tendría que afrontar el problema ahora.
 
 // -----------------
 
-
-//	----------------
-
 Los relojes marcaban más de las tres de la tarde cuando Ocellus, Smolder y Gallus llegaron a las puertas del comedor.
 
 "Bueno... déjenme empezar a mí. ¿Alguna pregunta?" dijo Ocellus sin voltearse antes de abrir la puerta.
@@ -557,9 +550,6 @@ Sentada en su silla, Trixie ya no escuchaba nada a su alrededor. Se encontraba j
 
 // -------
 
-
-// -------
-
 El truco de las mariposas de papel fue uno de los primeros que Trixie aprendió como maga. Le había tomado todo un verano perfeccionar el movimiento de las mariposas con su magia. Bajo la estricta supervisión de su padre, Trixie había entrenado día y noche. Su talento mágico, en ese entonces muy inferior al promedio, hizo que la tarea se sintiera titánica. 
 
 Sin embargo, los resultados fueron espectaculares. Cerrando su primera actuación ante el público, Trixie deslumbró a todos, desapareciendo del escenario en un torbellino de mariposas multicolores.
@@ -638,12 +628,9 @@ Así, en el comedor del castillo de la Princesa Twilight, después de una angust
 
 //	------
 
-
-//	------
-
 Trixie se sentía mucho mejor.
 
-La charla con los Young-Six había terminado. Preguntarse dónde podrían estar Starlight y Sunburst ya no preocupaba al grupo de jóvenes. Trixie, comprometida consigo misma, había asumido la tarea de resolver este asunto por su cuenta.
+La charla con los Young-Six había terminado. Preguntarse dónde podrían estar Starlight y Sunburst ya no preocupaba al grupo de jóvenes. Trixie, comprometiendose delante de todos, había asumido la tarea de resolver este asunto por su cuenta.
 
 Ocellus quería quedarse, pero Trixie se lo negó. Esta era una tarea que le correspondía a ella como adulta. Además, sus compañeros tampoco querían dejarla sola con Trixie. ¿Quién podría imaginar qué más desgracias le ocurrirían si permanecía todo el resto del día con ella?
 
