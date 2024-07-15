@@ -72,7 +72,7 @@ El reflejo deslumbrante de la Gran y Poderosa Trixie le devolvió una mirada org
 
 Tras darse esa orden, Trixie tomó asiento elegantemente en un diminuto banco, encendió unas velas, y comenzó a anotar sus ideas. No le importaba que le llevara toda la noche y no durmiera. No haría caso a la fatiga ni al sueño. Una vez que la Gran y Poderosa Trixie se decidía a hacer algo, no había nada en este mundo que pudiera detenerla.
 
-[hr]
+//----------------------------
 
 ¿Existía algo que pudiera detener a la Gran y Poderosa Trixie en este mundo?
 
@@ -118,7 +118,7 @@ La misteriosa alicornio comenzó a avanzar hacia Trixie con paso calmado y majes
 
 "¿He?, ¿he?, ¿quién, yo? ¿Espera, quién eres tú? ¿Qué está...?" Trixie no pudo terminar sus palabras. En ese momento, la luz del portal triangular se extendió hacia ellas, y ambas desaparecieron en un rayo arcoíris.
 
-[hr]
+//----------------------------
 
 Trixie abrió los ojos, ¿no lo había hecho antes?
 
@@ -200,7 +200,7 @@ Observándola con cuidado, noto una gran nostalgia en la mirada perdida de aquel
 
 Confundida, Trixie miró en la misma dirección...
 
-[hr]
+//----------------------------
 
 "¿Está segura de su decisión?" preguntó el Canciller Neighsay.
 
@@ -238,7 +238,7 @@ Starlight suspiró mirando hacia el techo, y después de unos segundos...
 
 Starlight, que parecía haber adivinado las siguientes palabras del Canciller, cerró los ojos y bajó la cabeza.
 
-[hr]
+//----------------------------
 
 "¡HEEEEE!" exclamó Trixie viendo cómo la puerta se teñía de negro y desaparecía de su vista. Se dio la vuelta y descubrió que la misteriosa alicornio había sido la responsable de ocultar aquella habitación con su magia.
 
@@ -254,7 +254,7 @@ Trixie pronto se encontró rodeada de tinieblas, con ella únicamente iluminada 
 
 Un goteo se escuchó de repente en el pasillo. Trixie volteó la mirada. El goteo se aproximaba... no, era algo diferente, era... un trote.
 
-[hr]
+//----------------------------
 
 De entre las sombras que inundaban el pasadizo de piedra negra, las maduras figuras de Starlight y Trixie emergieron con antorchas en un trote tranquilo y confiado.
 
@@ -284,7 +284,7 @@ Los instintos de peligro de Starlight se activaron. Este era un punto de inflexi
 
 Ambas desaparecieron en la oscuridad.
 
-[hr]
+//----------------------------
 
 Atrás se quedó Trixie, la versión de ella fuera de tiempo. Tenía un sabor amargo en la boca, como si ya hubiera vivido esa situación antes, pero ¿cuándo?
 
@@ -326,7 +326,7 @@ Trixie se debatía en el abrazo del miedo, una culpa abrumadora la asfixiaba.
 
 Su única opción era huir.
 
-[hr]
+//----------------------------
 
 Con lágrimas en los ojos, Trixie cabalgaba desesperadamente a través del tétrico túnel, su corazón latiendo con la furia de una locomotora a punto de estrellarse. La pirámide maldita parecía aprisionarla en su pesadilla interminable, mientras sombras malévolas se extendían detrás de ella como tentáculos de un brillo verdoso repugnante. La risa siniestra seguía retumbando en cada rincón, y el suelo temblaba bajo el peso de su voz maligna. Las paredes del túnel, como antiguos espectros, comenzaron a resquebrajarse y las sombras estallaban por las grietas como un torrente malsano, persiguiéndola sin descanso.
 
@@ -412,7 +412,7 @@ El portal colapso.
 
 Trixie se perdió, a solo un suspiro de alcanzar su destino. Desviándose, terminó cayendo en un tiempo que no debería ser.
 
-[hr]
+//----------------------------
 
 "PUFFFF" sono de pronto.
 
