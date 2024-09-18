@@ -1,0 +1,37 @@
+# Indice
+
+=== Sección 1: Informacion del Fanfic ===
+
+Nombre en Español: La Gran y Poderosa Trixie en el exordio bajo las piramides
+
+Tipo: Fanfic
+Fandom: MyLittlePony
+Genero: Comedia, Misterio, Aventura
+Personajes Principales: Trixie Lulamoon, Starlight, Young Six (Smolder, Silverstream, Sandbar, Gallus, Yona, Ocellus)
+Personajes Secundarios: Dhona Oleg-Nar Dhazer,Summermoon, Canciller Neighsay 
+
+Descripcion: Una visión lejana. Entre la medianoche y el mediodía. Trixie Lulamoon intentará superar un día lleno de obstáculos, malas decisiones, enemigos y misterios, sin saber que su destino y el de sus amigos ya esta escrito en piedra bajo pirámides de secretos y sombras.
+
+=== Sección 2: Índice del Fanfic ===
+
+1. Prólogo (archivo: 01_prologo_es.txt)
+
+2.  Capítulo 1: Fiesta en casa de Maud (archivo: 02_fiesta_en_casa_de_maud_es.txt)
+3.  Capítulo 2: El sueño de Starlight (archivo: 03_el_sueño_de_starlight_es.txt)
+4.  Capítulo 3: La pesadilla de Trixie (archivo: 04_la_pesadilla_de_trixie_es.txt)
+5.  Capítulo 4: Reunion en el castillo de Twilight (archivo: 05_reunion_en_el_castillo_de_twilight_es.txt)
+
+6.  Capítulo 5: Asalto al castillo de Twilight - Parte 1 (archivo: 06_asalto_al_castillo_de_twilight_parte1_es.txt) (pendiente)
+7.  Capítulo 5: Asalto al castillo de Twilight - Parte 2 (archivo: 06_asalto_al_castillo_de_twilight_parte2_es.txt) (pendiente)
+8.  Capítulo 5: Asalto al castillo de Twilight - Parte 3 (archivo: 06_asalto_al_castillo_de_twilight_parte3_es.txt) (pendiente)
+
+9.  Capítulo 6: Thargodal y Fathungry - Parte 1 (archivo: 07_thargodal_y_fathungry_parte1_es.txt) (pendiente)
+10. Capítulo 6: Thargodal y Fathungry - Parte 2 (archivo: 07_thargodal_y_fathungry_parte2_es.txt) (pendiente)
+11. Capítulo 6: Thargodal y Fathungry - Parte 3 (archivo: 07_thargodal_y_fathungry_parte3_es.txt) (pendiente)
+
+12. Capítulo 7: En el final del Exordio - Parte 1 (archivo: 08_en_el_final_del_exordio_parte1_es.txt) (pendiente)
+13. Capítulo 7: En el final del Exordio - Parte 2 (archivo: 08_en_el_final_del_exordio_parte2_es.txt) (pendiente)
+14. Capítulo 7: En el final del Exordio - Parte 3 (archivo: 08_en_el_final_del_exordio_parte3_es.txt) (pendiente)
+15. Capítulo 7: En el final del Exordio - Parte 4 (archivo: 08_en_el_final_del_exordio_parte4_es.txt) (pendiente)
+
+16. Epílogo (archivo: 09_epilogo_es.txt) (pendiente)
