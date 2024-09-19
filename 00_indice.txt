@@ -1,10 +1,22 @@
-# Indice en español
+# Informacion e Índice del Fanfic
 
-=== Sección 1: Informacion del Fanfic ===
+=== Sección 1: Informacion del Fanfic en Ingles ===
+
+Nombre en Ingles: The Great and Powerful Trixie in the exordium under the pyramids
+
+Type: Fanfic 
+Fandom: MyLittlePony 
+Genre: Comedy, mystery, adventure
+Main Characters: Trixie Lulamoon, Starlight, Young Six (Smolder, Silverstream, Sandbar, Gallus, Yona, Ocellus)
+Additional Characters: Dhona Oleg-Nar Dhazer,Summermoon, Canciller Neighsay 
+
+Description: A distant vision. Between midnight and noon. Trixie Lulamoon will try to overcome a day full of obstacles, bad decisions, enemies and mysteries, without knowing that her destiny and that of her friends is already written in stone under pyramids of secrets and shadows.
+
+
+=== Sección 2: Informacion del Fanfic en Español ===
 
 Nombre en Español: La Gran y Poderosa Trixie en el exordio bajo las piramides
 
-Idioma: Español (original)
 Tipo: Fanfic
 Fandom: MyLittlePony
 Genero: Comedia, Misterio, Aventura
@@ -13,7 +25,18 @@ Personajes Secundarios: Dhona Oleg-Nar Dhazer,Summermoon, Canciller Neighsay
 
 Descripcion: Una visión lejana. Entre la medianoche y el mediodía. Trixie Lulamoon intentará superar un día lleno de obstáculos, malas decisiones, enemigos y misterios, sin saber que su destino y el de sus amigos ya esta escrito en piedra bajo pirámides de secretos y sombras.
 
-=== Sección 2: Índice del Fanfic ===
+
+=== Sección 3: Índice del Fanfic en Ingles ===
+
+1. Prologue (archivo: 01_prologo_es.txt)
+
+2.  Capítulo 1: Party at Maud's house (archivo: 02_fiesta_en_casa_de_maud_es.txt)
+3.  Capítulo 2: Starlight's Dream  (archivo: 03_el_sueño_de_starlight_es.txt)
+4.  Capítulo 3: Trixie's Nightmare  (archivo: 04_la_pesadilla_de_trixie_es.txt)
+5.  Capítulo 4: Meeting at Twilight Castle (archivo: 05_reunion_en_el_castillo_de_twilight_es.txt)
+
+
+=== Sección 4: Índice del Fanfic en Español ===
 
 1. Prólogo (archivo: 01_prologo_es.txt)
 
