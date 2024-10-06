@@ -35,6 +35,23 @@ Descripcion: Una visión lejana. Entre la medianoche y el mediodía. Trixie Lula
 4.  Capítulo 3: Trixie's Nightmare  (archivo: 04_la_pesadilla_de_trixie_es.txt)
 5.  Capítulo 4: Meeting at Twilight Castle (archivo: 05_reunion_en_el_castillo_de_twilight_es.txt)
 
+6.  Capítulo 5: Assault on Twilight Castle - Part 1 (archivo: 06_asalto_al_castillo_de_twilight_parte1_es.txt) 
+7.  Capítulo 5: Assault on Twilight Castle - Part 2 (archivo: 06_asalto_al_castillo_de_twilight_parte2_es.txt) 
+8.  Capítulo 5: Assault on Twilight Castle - Part 3 (archivo: 06_asalto_al_castillo_de_twilight_parte3_es.txt) 
+
+9.  Capítulo 6: Thargodal and Fathungry - Part 1 (archivo: 07_thargodal_y_fathungry_parte1_es.txt) 
+10. Capítulo 6: Thargodal and Fathungry - Part 2 (archivo: 07_thargodal_y_fathungry_parte2_es.txt) 
+11. Capítulo 6: Thargodal and Fathungry - Part 3 (archivo: 07_thargodal_y_fathungry_parte3_es.txt) 
+
+12. Intermedio (archivo: 08_intermedio_es.txt)
+
+13. Capítulo 7: At the end of the Exordium - Part 1 (archivo: 09_en_el_final_del_exordio_parte1_es.txt)
+14. Capítulo 7: At the end of the Exordium - Part 2 (archivo: 09_en_el_final_del_exordio_parte2_es.txt) 
+15. Capítulo 7: At the end of the Exordium - Part 3 (archivo: 09_en_el_final_del_exordio_parte3_es.txt) 
+16. Capítulo 7: At the end of the Exordium - Part 4 (archivo: 09_en_el_final_del_exordio_parte4_es.txt) (pendiente)
+
+17. Epílogo (archivo: 10_epilogo_es.txt) (pendiente)
+
 
 === Sección 4: Índice del Fanfic en Español ===
 
@@ -53,12 +70,11 @@ Descripcion: Una visión lejana. Entre la medianoche y el mediodía. Trixie Lula
 10. Capítulo 6: Thargodal y Fathungry - Parte 2 (archivo: 07_thargodal_y_fathungry_parte2_es.txt) 
 11. Capítulo 6: Thargodal y Fathungry - Parte 3 (archivo: 07_thargodal_y_fathungry_parte3_es.txt) 
 
-12. Capítulo 7: En el final del Exordio - Parte 1 (archivo: 08_01_en_el_final_del_exordio_parte1_es.txt)
-13. Capítulo 7: En el final del Exordio - Parte 2 (archivo: 08_02_en_el_final_del_exordio_parte2_es.txt) 
+12. Intermedio (archivo: 08_intermedio_es.txt)
 
-14. Intermedio (archivo: 08_03_intermedio_es.txt)
+13. Capítulo 7: En el final del Exordio - Parte 1 (archivo: 09_en_el_final_del_exordio_parte1_es.txt)
+14. Capítulo 7: En el final del Exordio - Parte 2 (archivo: 09_en_el_final_del_exordio_parte2_es.txt) 
+15. Capítulo 7: En el final del Exordio - Parte 3 (archivo: 09_en_el_final_del_exordio_parte3_es.txt) 
+16. Capítulo 7: En el final del Exordio - Parte 4 (archivo: 09_en_el_final_del_exordio_parte4_es.txt) (pendiente)
 
-15. Capítulo 7: En el final del Exordio - Parte 3 (archivo: 08_03_en_el_final_del_exordio_parte3_es.txt) 
-16. Capítulo 7: En el final del Exordio - Parte 4 (archivo: 08_04_en_el_final_del_exordio_parte4_es.txt) (pendiente)
-
-17. Epílogo (archivo: 09_epilogo_es.txt) (pendiente)
+17. Epílogo (archivo: 10_epilogo_es.txt) (pendiente)
