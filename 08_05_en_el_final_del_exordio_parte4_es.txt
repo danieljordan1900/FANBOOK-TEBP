@@ -5,6 +5,8 @@
 
 [conversacion con Royalinda]
 
+"¿Que?¿Como es que tu?¡¿Quien rayos eres tu?!"
+
 [conversacion con Summermoon]
 
 [conversacion con Starlight]
