@@ -166,7 +166,7 @@ Tras echar un poco de azúcar en su bebida y revolverla con una cucharita, ambas
 
 En la biblioteca privada de Starlight Glimmer, dentro del castillo de Twilight, custodiada por dos mantícoras doradas a sus flancos, Trixie Lulamoon probó el té tibio que acababa de prepararse.
 
-"Esto es mi culpa..." no pudo evitar repetirse arrepentida en sus adentros mientras tomaba de la taza. Royalinda, su captora, al otro lado de la gran mesa del mapa, hojeaba concentrada unos documentos, en un aparente desinterés por las acciones de su prisionera.
+"Esto es mi culpa..." no pudo evitar repetirse angustiada en sus adentros mientras tomaba de la taza entre temblores. A pesar de esto, Royalinda, su captora, al otro lado de la gran mesa del mapa, hojeaba concentrada unos documentos, en un aparente desinterés por las acciones de su prisionera.
 
 Por supuesto, esto último realmente no era así.
 
@@ -186,9 +186,9 @@ Esta era Royalinda, la última orquídea-pulpo, completamente alerta a todos los
 
 Era verdad. Poco después de que Trixie despertara desorientada en el estudio de Starlight, Royalinda curó sus heridas de inmediato y la ayudó a recuperar su lucidez.
 
-En otras circunstancias, habría agradecido fervientemente aquel gesto, pero dado quién era su captora, eso le resultaba imposible. De hecho, le costó bastante aceptarlo. Al principio, había creído que todo era un sueño o que aún estaba soñando; sin embargo, tras ser electrificada por Royalinda un par de veces más, poco a poco comenzó a calmarse y a aceptar la realidad en la que se encontraba.
+En otras circunstancias, habría agradecido fervientemente aquel gesto, pero dado quién era su captora, eso le resultaba imposible. De hecho, le costó bastante aceptarlo. Al principio, había creído que todo era un sueño o que aún estaba soñando; quiza que Sunburst y los demas le estaban jugando una cruel broma como castigo, sin embargo, tras ser electrificada por Royalinda un par de veces más, poco a poco comenzó a calmarse y a aceptar la realidad en la que se encontraba.
 
-Una realidad horrible, dolorosa, que casi le hacía echar de menos estar de vuelta en el gran atrio del castillo enfrentándose al monstruo caracol de antes.
+Una realidad horrible, dolorosa, una pesadilla vivida que casi le hacía echar de menos estar de vuelta en el gran atrio del castillo enfrentándose al monstruo caracol de antes.
 
 "Descuida, así está bien..." respondió Trixie con su falsa sonrisa, tomando entre sorbos de su té.
 
@@ -204,27 +204,58 @@ Unos deseos intensos de tirarle el té directamente a la cara y quitarle esa est
 
 La culpa nuevamente la dominó.
 
-La orquídea-pulpo ante ella, Royalinda, era la encarnación física de todo su fracaso como profesional, amiga y poni. Y responsable de gran parte de las desgracias que habían vivido Trixie y los Young-Six durante la tarde. No obstante, aquel fruto del mal, aquel parásito maligno, no había nacido de la nada.
+La orquídea-pulpo ante ella, Royalinda, era la encarnación física de todo su fracaso como profesional, amiga y poni responsable. Era tambien la causante de gran parte de las desgracias que habían vivido Trixie y los Young-Six durante la tarde. No obstante, aquel fruto del mal, aquel parásito maligno, no había nacido de la nada.
 
-Alguien lo había alimentado y cuidado, permitiéndole existir en este mundo. Y ese alguien insensato, arrogante y descuidado no era nadie más ni nadie menos que la misma Trixie.
+Alguien lo había alimentado y cuidado, permitiéndole existir en este mundo. Y ese alguien insensato, arrogante y descuidado que habia sido capaz de hacer algo como eso no era nadie más ni nadie menos que la misma Trixie.
 
 Todo era su culpa... en verdad lo era.
 
-Durante aquel día, muchas veces se preguntó qué había hecho para que las cosas se tornaran de esa forma. Pero ahora que tenía la respuesta delante suyo, era incapaz de mirarle a los ojos.
+Durante aquel día, muchas veces se preguntó qué había hecho para que las cosas tomaran ese rumbo. Pero ahora que tenía la respuesta frente a ella, era incapaz de mirarle a los ojos.
 
-"Qué patética soy ..." aplastada por su propia decepcion y fatiga, Trixie dejando a un lado su taza de te vacia, agacho la cabeza con la mirada perdida hacia uno de sus costados.
+"Qué patética soy..." aplastada por su propia decepción y fatiga, Trixie dejó a un lado su taza de té vacía y agachó la cabeza, con la mirada perdida hacia uno de sus costados.
 
-Al otro lado de la mesa. Royalinda atenta a los movimientos de Trixie ezbozo una sonrisa mas afilada.
+Al otro lado de la mesa, Royalinda, siempre atenta a los movimientos de Trixie, esbozó una sonrisa más afilada.
 
-"¿Te gustan verdad?"
+"¿Te gustan, verdad?"
 
-Sacada de su depresivo estado, una sobresaltada Trixie respondio "¿Disculpa?"
+Sacada de su estado depresivo, Trixie se sobresaltó. "¿Disculpa?"
 
-Girando la cabeza de Sunburst en un movimiento demasiado mecanico para ser natural. Royalinda parecio señalar con el menton a la manticora dorada a su lado.
+Girando la cabeza de Sunburst en un movimiento demasiado mecánico para ser natural, Royalinda señaló con el mentón a la mantícora dorada a su lado.
 
-"Las hice tal como las habias diseñado. Claro, añadi mas funcionalidades para mis necesidades, pero espero no haber alterado demasiado tu trabajo original."
+"Las hice tal como las habías diseñado. Claro, añadí más funcionalidades para mis necesidades, pero espero no haber alterado demasiado tu trabajo original."
 
-Trixie, confundida.
+Trixie, aún confusa, observó a los cuerpos mecánicos que la custodiaban. Tras un momento, lo recordó.
+
+"Ahh... cierto. Ellos..."
+
+Podía recordarlo. Aquellas armaduras eran las mismas que había planificado cuando pensó en mejorar el sistema de seguridad del castillo. Aunque solo esbozó algunos diseños basados en las propuestas iniciales de la princesa Luna, el diseño de las mantícoras doradas había sido completamente suyo, una idea original que Starlight elogió en su momento, pero que quedó relegada a las profundidades de los anexos del manual del sistema.
+
+Estos mismos planos eran los que Royalinda había encontrado y usado después de tomar el control del puesto de seguridad.
+
+Pero entonces ... una pregunta emergia. En el pasado, Trixie había insistido a Starlight en usar algún tipo de magia poderosa para crear el sistema de seguridad perfecto para el castillo. Sin embargo Starlight lo negó rotundamente. Entre los motivos, además de los costos y el peligro inherente, estaba el hecho de que tal magia era muy difícil de realizar y era poco conocida.
+
+Si su amiga Starlight, una magnífica hechicera de alto nivel, no era capaz de realizar semejante proeza, ¿cómo lo había logrado Royalinda?
+
+"¿Cómo es que las creaste?" preguntó Trixie cruzando las cejas.
+
+"Fu fu fu..." rió Royalinda con un evidente aire de superioridad. "Te sorprendería lo mucho que puedes lograr si tienes a tu disposición una mente tan brillante como esta."
+
+"Eso es..." añadió, aún confundida, Trixie. Royalinda respondió con una sonrisa aún más grande mientras se golpeaba la cabeza con una de sus pezuñas.
+
+"Tu amigo tiene en su cabeza una vasta enciclopedia sobre magia, hechizos, ritos, contrahechizos y muchos más conocimientos de los que jamás habría soñado obtener. Todo ordenado y listo para usar de inmediato. ¡Ah, es magnífico!" El tono de voz de Royalinda revelaba el sincero éxtasis que recorría su cuerpo en ese momento. "Puedo decir con total seguridad que su conocimiento es incluso mayor que el de tu querida Starlight. Casi siento lástima por alguien así, incapaz de usar nada de todo ese saber. Fu fu fu. Pero no hay que preocuparse, yo sí le daré un buen uso."
+
+La ira se reflejó por fin en el rostro de Trixie al ver cómo Royalinda usaba el cuerpo de su amigo como si fuera un juguete, maltratando uno de sus cascos con una pluma, sin mostrar el menor indicio de dolor.
+
+"Oh, no pongas esa cara. No pienso hacerle nada a este magnífico recipiente. Voy a cuidar bien de él, pero no puedo decir lo mismo de tus otros 'amigos'."
+
+El rostro de Trixie cambió, y entonces, aquello que debió haber preguntado mucho antes, finalmente salió de su boca.
+
+"¿Qué le hiciste a Starlight?"
+
+"Tardaste bastante en preguntar"
+
+"¡¿Que le hiciste a Starlight?!"
+
 
 
 La conversacion que habia tenido con Royalinda hasta entonces 
