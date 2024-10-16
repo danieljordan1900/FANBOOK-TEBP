@@ -212,7 +212,19 @@ Todo era su culpa... en verdad lo era.
 
 Durante aquel día, muchas veces se preguntó qué había hecho para que las cosas se tornaran de esa forma. Pero ahora que tenía la respuesta delante suyo, era incapaz de mirarle a los ojos.
 
-Qué patética era, en verdad...
+"Qué patética soy ..." aplastada por su propia decepcion y fatiga, Trixie dejando a un lado su taza de te vacia, agacho la cabeza con la mirada perdida hacia uno de sus costados.
+
+Al otro lado de la mesa. Royalinda atenta a los movimientos de Trixie ezbozo una sonrisa mas afilada.
+
+"¿Te gustan verdad?"
+
+Sacada de su depresivo estado, una sobresaltada Trixie respondio "¿Disculpa?"
+
+Girando la cabeza de Sunburst en un movimiento demasiado mecanico para ser natural. Royalinda parecio señalar con el menton a la manticora dorada a su lado.
+
+"Las hice tal como las habias diseñado. Claro, añadi mas funcionalidades para mis necesidades, pero espero no haber alterado demasiado tu trabajo original."
+
+Trixie, confundida.
 
 
 La conversacion que habia tenido con Royalinda hasta entonces 
