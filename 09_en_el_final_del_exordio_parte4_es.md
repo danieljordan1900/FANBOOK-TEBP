@@ -1,5 +1,4 @@
 # Capítulo 7: En el final del Exordio - Parte 4
--------------------
 
 Sobre las tierras de Equestria, perdiéndose en la línea final del horizonte, el sol del día más largo se acercaba al final de su viaje.
 
@@ -17,17 +16,17 @@ A la vista de todos los habitantes del tranquilo poblado, el castillo de la prin
 
 El antes majestuoso y brillante castillo, que se asemejaba a un joven árbol, ahora lucía deforme y sombrío. Su estructura, envuelta en un aire distorsionado, había crecido desmesuradamente, elevándose hacia el cielo como una espina retorcida y amenazante.
 
-Lejos de verse como el símbolo de paz que todos conocían, el castillo se había convertido en una ominosa y sobrecogedora torre oscura que infundía temor en quienes osaban mirarla.
+Lejos de verse como el símbolo de paz que todos conocían, el castillo habia tomado la forma de una ominosa y sobrecogedora torre oscura que infundía temor en quienes osaban mirarla.
 
 Tal era el cambio que, confundidos por lo que veían, muchos ponis se frotaban los ojos, incrédulos ante lo que tenían frente a ellos.
 
 Pero la realidad no podía ser negada. Estruendos resonaban como rugidos de bestias desde el interior de la oscura torre. El suelo temblaba, el aire vibraba y nubes tormentosas giraban alrededor de la cúspide de la construcción, como si el mismo cielo se hubiera convertido en un vórtice.
 
-Nadie en Ponyville sabía lo que estaba ocurriendo dentro del otrora castillo de la princesa Twilight.
+Nadie en Ponyville sabía lo que estaba ocurriendo dentro del otrora castillo de la amistad.
 
 Y si lo supieran, no estarían allí, observando con desconcierto. Más bien, habrían huido, escondiéndose aterrados, anticipando el horror que estaba a punto de desatarse...
 
-//-------------------------
+---
 
 Dentro del castillo, el destino se abría paso en medio del caos...
 
@@ -63,7 +62,7 @@ Ahora...
 
 "¡HAAAAAAAAAAAAAAAAA! ¡CAPTÚRENLA! ¡CAPTÚRENLA! ¡CAPTÚRENLA Y TRAEDLA ANTE MÍ DE INMEDIATO!" rugió, consumida por una ira ciega y desquiciada. Sus siervos, las oscuras armaduras, dejaron de lado todas las órdenes previas. Sin vacilar, se lanzaron a cumplir la nueva misión de su amo.
 
-//-------------------------
+---
 
 Las órdenes llegaron abruptamente. Las armaduras encantadas con forma de mantícoras, que hasta entonces se habían posicionado sigilosamente en los pisos superiores donde se encontraban los Young-Six, sintieron el apremiante llamado de su amo. Dejaron de lado la instrucción anterior de eliminar al grupo de amigos que estaba a punto de escapar al balcón, y se lanzaron al ataque.
 
@@ -143,7 +142,7 @@ No hubo un choque violento contra el fondo del castillo. Solo luz corrupta, y lu
 
 El capitán de las armaduras había desaparecido de la faz de este mundo.
 
-//-------------------------
+---
 
 "... y luego, mis otros súbditos te encontraron y te trajeron ante mí. ¿Eso responde a tu pregunta?" termino de decir Royalinda, controlando el cuerpo de Sunburst, acomodada en un elegante sillón.
 
@@ -163,19 +162,62 @@ Trixie, aún con los grilletes en sus patas y con un evidente agotamiento, logr�
 
 Tras echar un poco de azúcar en su bebida y revolverla con una cucharita, ambas se miraron, intercambiando sonrisas tan idénticas como falsas.
 
-//--------------------------
+---
 
-"Esto es mi culpa..." no pudo evitar repetirse apenada Trixie en sus adentros mientras tomaba el té que le habia compartido su captor. Delante suyo, Royalinda hojeaba concentrada unos documentos, en un aparente desinterés por las acciones de su prisionera.
+En la biblioteca privada de Starlight Glimmer, dentro del castillo de Twilight, custodiada por dos mantícoras doradas a sus flancos, Trixie Lulamoon probó el té tibio que acababa de prepararse.
 
-Por supuesto, realmente no era así.
+"Esto es mi culpa..." no pudo evitar repetirse arrepentida en sus adentros mientras tomaba de la taza. Royalinda, su captora, al otro lado de la gran mesa del mapa, hojeaba concentrada unos documentos, en un aparente desinterés por las acciones de su prisionera.
+
+Por supuesto, esto último realmente no era así.
 
 El cuerpo de Sunburst, cuyos ojos se veían enrojecidos por la posesión mental en la que se encontraba, era solo un cascarón, una marioneta. La verdadera identidad de la criatura responsable de todo el sufrimiento que habían vivido Trixie y los Young-Six durante esa tarde se encontraba en el cuello del subdirector de la Escuela de la Amistad.
 
-Apenas visible entre el desordenado cabello de Sunburst, una criatura diminuta, semejante a una orquídea con tentáculos de pulpo, asomaba pegada en la parte posterior del cuello del corcel. Este ser rosa, de cuerpo palpitante, tenía dos puntos negros visibles en su cabeza, que servian de ojos y que estaban fijos en la posición de Trixie.
+Apenas visible entre el desordenado cabello de Sunburst, una criatura diminuta, semejante a una orquídea con tentáculos de pulpo, asomaba pegada en la parte posterior del cuello del corcel. Este ser rosa, de cuerpo palpitante, tenía dos puntos negros visibles en su cabeza, que servían de ojos y estaban fijos en la dirección de Trixie.
 
 "Ugh..." Trixie sintió náuseas al mantener la mirada sobre el parásito que se agitaba en el cuello de su amigo. Incapaz de soportarlo más, apartó la vista.
 
 Esta era Royalinda, la última orquídea-pulpo, completamente alerta a todos los movimientos de Trixie.
+
+"¿Sucede algo, madre?" preguntó Royalinda sin levantar la mirada de los documentos.
+
+"No, no es nada..." respondió Trixie sin volver la vista, en aparente calma.
+
+"¿De verdad? Si aún estás agotada, puedo restaurar tu salud aún más. Solo pídemelo."
+
+Era verdad. Poco después de que Trixie despertara desorientada en el estudio de Starlight, Royalinda curó sus heridas de inmediato y la ayudó a recuperar su lucidez.
+
+En otras circunstancias, habría agradecido fervientemente aquel gesto, pero dado quién era su captora, eso le resultaba imposible. De hecho, le costó bastante aceptarlo. Al principio, había creído que todo era un sueño o que aún estaba soñando; sin embargo, tras ser electrificada por Royalinda un par de veces más, poco a poco comenzó a calmarse y a aceptar la realidad en la que se encontraba.
+
+Una realidad horrible, dolorosa, que casi le hacía echar de menos estar de vuelta en el gran atrio del castillo enfrentándose al monstruo caracol de antes.
+
+"Descuida, así está bien..." respondió Trixie con su falsa sonrisa, tomando entre sorbos de su té.
+
+"Está bien, pero aquí estoy para servirte... madre", terminó diciendo Royalinda, haciendo énfasis en su última palabra.
+
+Madre.
+
+Trixie sentía algo en lo profundo de su pecho moverse cada vez que ese ser decía esa palabra. Y no era su corazón, sino su estómago, estrangulado por el repudio que nacía de su interior. Una ira que ya no tenía fuerzas para manifestarse físicamente, pero que aún se expresaba como una náusea creciente y dolorosa que invadía todas sus entrañas.
+
+Deteniéndose un momento, Trixie miró de reojo a Royalinda. Ella también sonreía, sin mirarla.
+
+Unos deseos intensos de tirarle el té directamente a la cara y quitarle esa estúpida sonrisa invadieron su mente. Pero fue un sentimiento fugaz.
+
+La culpa nuevamente la dominó.
+
+La orquídea-pulpo ante ella, Royalinda, era la encarnación física de todo su fracaso como profesional, amiga y poni. Y responsable de gran parte de las desgracias que habían vivido Trixie y los Young-Six durante la tarde. No obstante, aquel fruto del mal, aquel parásito maligno, no había nacido de la nada.
+
+Alguien lo había alimentado y cuidado, permitiéndole existir en este mundo. Y ese alguien insensato, arrogante y descuidado no era nadie más ni nadie menos que la misma Trixie.
+
+Todo era su culpa... en verdad lo era.
+
+Durante aquel día, muchas veces se preguntó qué había hecho para que las cosas se tornaran de esa forma. Pero ahora que tenía la respuesta delante suyo, era incapaz de mirarle a los ojos.
+
+Qué patética era, en verdad...
+
+
+La conversacion que habia tenido con Royalinda hasta entonces 
+
+
 
 "Starlight... Sunburst... Los niños ..." el rostro de sus amigos y los alumnos de la escuela danzaban en los pensamientos de la unicornio. La culpa que habia sentido en la tarde despues de confesar sus crimenes a los Young-Six habia regresado con fuerza renovada a su interior.
 
