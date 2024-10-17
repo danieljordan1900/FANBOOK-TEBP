@@ -172,7 +172,7 @@ Por supuesto, esto último realmente no era así.
 
 El cuerpo de Sunburst, cuyos ojos se veían enrojecidos por la posesión mental en la que se encontraba, era solo un cascarón, una marioneta. La verdadera identidad de la criatura responsable de todo el sufrimiento que habían vivido Trixie y los Young-Six durante esa tarde se encontraba en el cuello del subdirector de la Escuela de la Amistad.
 
-Apenas visible entre el desordenado cabello de Sunburst, una criatura diminuta, semejante a una orquídea con tentáculos de pulpo, asomaba pegada en la parte posterior del cuello del corcel. Este ser rosa, de cuerpo palpitante, tenía dos puntos negros visibles en su cabeza, que servían de ojos y estaban fijos en la dirección de Trixie.
+Apenas visible entre el desordenado cabello de Sunburst, una diminuta criatura, semejante a una orquídea con tentáculos de pulpo, asomaba pegada en la parte posterior del cuello del corcel. Este ser rosa, de cuerpo palpitante, tenía dos puntos negros visibles en su cabeza, que servían de ojos y estaban fijos en la dirección de la cautiva unicornio.
 
 "Ugh..." Trixie sintió náuseas al mantener la mirada sobre el parásito que se agitaba en el cuello de su amigo. Incapaz de soportarlo más, apartó la vista.
 
@@ -210,7 +210,7 @@ Alguien lo había alimentado y cuidado, permitiéndole existir en este mundo. Y 
 
 Todo era su culpa... en verdad lo era.
 
-Durante aquel día, muchas veces se preguntó qué había hecho para que las cosas tomaran ese rumbo. Pero ahora que tenía la respuesta frente a ella, era incapaz de mirarle a los ojos.
+Durante aquel día, muchas veces se preguntó qué había hecho para que las cosas tomaran ese rumbo. Pero ahora que tenía la respuesta frente a ella, era incapaz de mirarla a los ojos.
 
 "Qué patética soy..." aplastada por su propia decepción y fatiga, Trixie dejó a un lado su taza de té vacía y agachó la cabeza, con la mirada perdida hacia uno de sus costados.
 
@@ -232,37 +232,67 @@ Podía recordarlo. Aquellas armaduras eran las mismas que había planificado cua
 
 Estos mismos planos eran los que Royalinda había encontrado y usado después de tomar el control del puesto de seguridad.
 
-Pero entonces ... una pregunta emergia. En el pasado, Trixie había insistido a Starlight en usar algún tipo de magia poderosa para crear el sistema de seguridad perfecto para el castillo. Sin embargo Starlight lo negó rotundamente. Entre los motivos, además de los costos y el peligro inherente, estaba el hecho de que tal magia era muy difícil de realizar y era poco conocida.
+Pero entonces... una pregunta surgió dentro de Trixie. 
+
+En el pasado, ella había insistido a Starlight en usar algún tipo de magia poderosa para crear el sistema de seguridad perfecto para el castillo. Sin embargo, Starlight lo negó rotundamente. Entre los motivos, además de los costos y el peligro inherente, estaba el hecho de que tal magia era muy difícil de realizar y poco conocida.
 
 Si su amiga Starlight, una magnífica hechicera de alto nivel, no era capaz de realizar semejante proeza, ¿cómo lo había logrado Royalinda?
 
-"¿Cómo es que las creaste?" preguntó Trixie cruzando las cejas.
+"¿Cómo es que las creaste?" preguntó Trixie, frunciendo el ceño.
 
 "Fu fu fu..." rió Royalinda con un evidente aire de superioridad. "Te sorprendería lo mucho que puedes lograr si tienes a tu disposición una mente tan brillante como esta."
 
 "Eso es..." añadió, aún confundida, Trixie. Royalinda respondió con una sonrisa aún más grande mientras se golpeaba la cabeza con una de sus pezuñas.
 
-"Tu amigo tiene en su cabeza una vasta enciclopedia sobre magia, hechizos, ritos, contrahechizos y muchos más conocimientos de los que jamás habría soñado obtener. Todo ordenado y listo para usar de inmediato. ¡Ah, es magnífico!" El tono de voz de Royalinda revelaba el sincero éxtasis que recorría su cuerpo en ese momento. "Puedo decir con total seguridad que su conocimiento es incluso mayor que el de tu querida Starlight. Casi siento lástima por alguien así, incapaz de usar nada de todo ese saber. Fu fu fu. Pero no hay que preocuparse, yo sí le daré un buen uso."
+"Tu amigo tiene en su cabeza una vasta enciclopedia sobre magia, hechizos, ritos y muchos más conocimientos mágicos de los que jamás habría soñado obtener. Todo ordenado y listo para usar de inmediato. ¡Ah, es magnífico!" El tono de voz de Royalinda revelaba el sincero éxtasis que recorría su cuerpo en ese momento. "Puedo decir con total seguridad que su conocimiento es incluso mayor que el de tu querida Starlight. Casi siento lástima por alguien así, incapaz de usar nada de todo ese saber. Fu fu fu. Pero no hay que preocuparse, yo sí le daré un buen uso."
 
-La ira se reflejó por fin en el rostro de Trixie al ver cómo Royalinda usaba el cuerpo de su amigo como si fuera un juguete, maltratando uno de sus cascos con una pluma, sin mostrar el menor indicio de dolor.
+Trixie por fin lo entendio. Royalinda habia usado el conocimiento de Sunburst para crear aquel ejercito implacable de armaduras. Aunque Sunburst era un unicornio que tenia muy poco talento para la magia, su basto conocimiento de esta misma y el mismo talento magico de Royalinda (quien carecia de las limitaciones de su anfitrio), habian sido los factores que habian permitido el surgimiento de tan tragico escenario. 
+
+"Sunburst ..."mumuro Trixie angustiada. Notando los sentimientos de su prisionera, Royalinda comenzo a maltratar uno de sus cascos del cuerpo de Sunburst con una pluma, sin mostrar el menor indicio de dolor.
+
+La ira por fin se reflejó en el rostro de Trixie al ver cómo Royalinda usaba el cuerpo de su amigo como si fuera un juguete
 
 "Oh, no pongas esa cara. No pienso hacerle nada a este magnífico recipiente. Voy a cuidar bien de él, pero no puedo decir lo mismo de tus otros 'amigos'."
 
-El rostro de Trixie cambió, y entonces, aquello que debió haber preguntado mucho antes, finalmente salió de su boca.
+El rostro de Trixie cambió, como al de un poni sorprendido en medio de la noche por un mounstruo. Entonces, aquello que debió haber preguntado mucho antes, finalmente salió de su boca.
 
 "¿Qué le hiciste a Starlight?"
 
-"Tardaste bastante en preguntar"
+"Tardaste bastante en preguntar" respondió Royalinda relajada, sin sentirse intimidada por la mirada fulminante de Trixie. Aunque, por alguna razón, su buen humor parecía haber desaparecido de golpe.
 
-"¡¿Que le hiciste a Starlight?!"
+"¡¿Qué le hiciste?!" repitió Trixie con el rostro deformado.
 
+"Uhmmm" Royalinda, aparentemente distraída, miró el techo de la habitación.
 
+"¡Responde! Ughh..." Antes de que Trixie pudiera continuar hablando, las cadenas que sujetaban sus cascos la jalaron desde abajo, haciéndola inclinarse hacia la mesa y golpeando su cara contra esta.
 
-La conversacion que habia tenido con Royalinda hasta entonces 
+"No tienes por qué insistir con preguntas como esa." respondió Royalinda con una postura soberbia. "¿Aún no te queda clara la posición en la que te encuentras?"
 
+Trixie, con su rostro aún pegado contra el frío cristal de la mesa, respiraba con intensidad, ventilando su frustración e ira. La escena actual no era una novedad en la habitacion; ya se había repetido varias veces antes, y por los mismos motivos. A pesar de la aparente conversación natural entre ambas, Royalinda no había contestado ninguna de las preguntas de Trixie sobre el paradero o estado de sus amigos. Tampoco había respondido directamente sobre su verdadera identidad o sus intenciones. Ni siquiera le había dicho su nombre. Hasta ahora, Trixie solo había sido una espectadora pasiva que recibia respuestas indirectas o que no respondian nada. Y cada vez que insistia era torturada con electricidad o el apretar de las cadenas.
 
+"Solo juega conmigo..." pensó, girando la cabeza en dirección a Royalinda. Hasta ese momento había seguido su juego, pero ahora que su cuerpo y mente comenzaban lentamente a recuperarse, sentía cómo su espíritu de lucha se encendía de nuevo dentro de ella.
 
-"Starlight... Sunburst... Los niños ..." el rostro de sus amigos y los alumnos de la escuela danzaban en los pensamientos de la unicornio. La culpa que habia sentido en la tarde despues de confesar sus crimenes a los Young-Six habia regresado con fuerza renovada a su interior.
+Esa chispa en su mirada era precisamente lo que Royalinda había estado esperando.
+
+"Te ves mucho más recuperada, eso está muy bien, madre."
+
+Las cejas de Trixie se fruncieron aún más. Escupió con desdén: "Ya puedes dejar de llamarme así. ¡No eres mi hija!"
+
+"Jamás dije que lo fuera. Es solo una forma muy... amable de referirme a ti. Llamarte por tu verdadero nombre me resulta... repulsivo, considerando que tú nunca nos diste un nombre a nosotros."
+
+"¿Nosotros?" preguntó Trixie, sintiendo un cambio en el aire.
+
+"Éramos muchos. Mis hermanos y hermanas," comenzó a responder Royalinda, su voz bajando mientras su mirada se perdía en un rincón vacío de la habitación, como si contemplara otro lugar y otro tiempo. "Todos confiaban en ti, esperaban que volvieras algún día, que nos trajeras el alimento, como siempre lo hacías. Todos eran tan inocentes, tan pacientes... jsjs... Yo también lo fui."
+
+El rostro de Royalinda pareció hundirse en sombras. Aunque era el cuerpo de Sunburst controlado por la orquídea-pulpo que era Royalinda, por un momento, a pesar de todo, los ojos de Trixie captaron algo más profundo.
+
+"Pero el hambre no podía esperar... y nosotros tampoco..." Un aire tétrico envolvió el lugar donde Royalinda estaba sentada. Fue un instante, apenas perceptible. Quizá solo lo imaginó, pero Trixie creyó ver, en un breve parpadeo, una lágrima de sangre deslizarse por el rostro de Royalinda.
+
+[Royalinda rie]
+
+[Trixie arrepentida]
+
+"Starlight... Sunburst... Los niños ...y esto.." el rostro de sus amigos y los alumnos de la escuela danzaban en los pensamientos de la unicornio. La culpa que habia sentido en la tarde despues de confesar sus crimenes a los Young-Six habia regresado con fuerza renovada a su interior.
 
 ¿Cuantos mas serian lastimados por su culpa ese dia?
 
@@ -274,9 +304,9 @@ Sintiendo un sabor agrio que se exparcia en su boca y un nudo creciente en su ga
 
 "¿Que quiero de ti?¿A que te refieres?" pregunto Royalinda con una aparente ingenuidad.
 
-"¡No juegues conmigo! Dijiste que querias acabar conmigo personalmente ¿Porque aun no lo haces?"
+"Dijiste que querias acabar conmigo personalmente ¿Porque aun no lo haces?"
 
-"Uhmmm" Royalinda hizo una larga pausa. "...veo que aun no entiendes cuales son mis intenciones. Quiero hacer esto a mi manera." 
+"Uhmmm" Royalinda hizo una larga pausa. "Esa es una pregunta estupida. Haste una mejor. ¿Que tanto crees que te odio?" 
 
 
 
