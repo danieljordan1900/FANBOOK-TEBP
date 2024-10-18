@@ -178,7 +178,7 @@ Apenas visible entre el desordenado cabello de Sunburst, una diminuta criatura, 
 
 Esta era Royalinda, la última orquídea-pulpo, completamente alerta a todos los movimientos de Trixie.
 
-"¿Sucede algo, madre?" preguntó Royalinda sin levantar la mirada de los documentos.
+"¿Sucede algo?" preguntó Royalinda sin levantar la mirada de los documentos.
 
 "No, no es nada..." respondió Trixie sin volver la vista, en aparente calma.
 
@@ -258,7 +258,7 @@ El rostro de Trixie cambió, como al de un poni sorprendido en medio de la noche
 
 "¿Qué le hiciste a Starlight?"
 
-"Tardaste bastante en preguntar" respondió Royalinda relajada, sin sentirse intimidada por la mirada fulminante de Trixie. Aunque, por alguna razón, su buen humor parecía haber desaparecido de golpe.
+"Tardaste bastante en preguntar por ella ¿no te parece?" respondió Royalinda relajada, sin sentirse intimidada por la mirada fulminante de Trixie. Aunque, por alguna razón, su buen humor parecía haber desaparecido de golpe.
 
 "¡¿Qué le hiciste?!" repitió Trixie con el rostro deformado.
 
@@ -266,27 +266,36 @@ El rostro de Trixie cambió, como al de un poni sorprendido en medio de la noche
 
 "¡Responde! Ughh..." Antes de que Trixie pudiera continuar hablando, las cadenas que sujetaban sus cascos la jalaron desde abajo, haciéndola inclinarse hacia la mesa y golpeando su cara contra esta.
 
-"No tienes por qué insistir con preguntas como esa." respondió Royalinda con una postura soberbia. "¿Aún no te queda clara la posición en la que te encuentras?"
+"No tienes por qué insistir con preguntas como esa." respondió Royalinda con una postura soberbia volviendo su mirada a Trixie. "¿Aún no te queda clara la posición en la que te encuentras?"
 
 Trixie, con su rostro aún pegado contra el frío cristal de la mesa, respiraba con intensidad, ventilando su frustración e ira. La escena actual no era una novedad en la habitacion; ya se había repetido varias veces antes, y por los mismos motivos. A pesar de la aparente conversación natural entre ambas, Royalinda no había contestado ninguna de las preguntas de Trixie sobre el paradero o estado de sus amigos. Tampoco había respondido directamente sobre su verdadera identidad o sus intenciones. Ni siquiera le había dicho su nombre. Hasta ahora, Trixie solo había sido una espectadora pasiva que recibia respuestas indirectas o que no respondian nada. Y cada vez que insistia era torturada con electricidad o el apretar de las cadenas.
 
-"Solo juega conmigo..." pensó, girando la cabeza en dirección a Royalinda. Hasta ese momento había seguido su juego, pero ahora que su cuerpo y mente comenzaban lentamente a recuperarse, sentía cómo su espíritu de lucha se encendía de nuevo dentro de ella.
+"¡No jugaras conmigo!" pensó, girando la cabeza en dirección a Royalinda. Hasta ese momento había seguido su juego, pero ahora que su cuerpo y mente comenzaban lentamente a recuperarse, sentía cómo su espíritu de lucha se encendía de nuevo dentro de ella.
 
 Esa chispa en su mirada era precisamente lo que Royalinda había estado esperando.
 
 "Te ves mucho más recuperada, eso está muy bien, madre."
 
-Las cejas de Trixie se fruncieron aún más. Escupió con desdén: "Ya puedes dejar de llamarme así. ¡No eres mi hija!"
+Las cejas de Trixie se fruncieron aún más. Escupió con desprecio: "Ya basta. ¡No eres mi hija!"
 
-"Jamás dije que lo fuera. Es solo una forma muy... amable de referirme a ti. Llamarte por tu verdadero nombre me resulta... repulsivo, considerando que tú nunca nos diste un nombre a nosotros."
+"Jamás dije que lo fuera. Es solo una forma muy... amable de referirme a ti. Llamarte por tu verdadero nombre o ese otro ridiculo titulo que usas me resulta... repulsivo"
+
+La fuerza que jalaba las cadenas de Trixie desaparecio, pero el dolor en sus patas y cuello no.
+
+Nuevamente Trixie pudo incorporarse en su asiento.
+
+
+considerando que tú nunca nos diste un nombre a nosotros.
 
 "¿Nosotros?" preguntó Trixie, sintiendo un cambio en el aire.
 
-"Éramos muchos. Mis hermanos y hermanas," comenzó a responder Royalinda, su voz bajando mientras su mirada se perdía en un rincón vacío de la habitación, como si contemplara otro lugar y otro tiempo. "Todos confiaban en ti, esperaban que volvieras algún día, que nos trajeras el alimento, como siempre lo hacías. Todos eran tan inocentes, tan pacientes... jsjs... Yo también lo fui."
+"Si 'nosotros' ... éramos muchos. Mis hermanos y hermanas," comenzó a responder Royalinda reclinandose en su asiento y su voz bajando mientras su mirada se perdía en un rincón vacío de la habitación, como si contemplara otro lugar y momento. "Todos confiaban en ti, esperaban que volvieras algún día, que nos trajeras el alimento, como siempre lo hacías. Todos eran tan inocentes, tan pacientes... jsjs... Yo también lo fui."
 
-El rostro de Royalinda pareció hundirse en sombras. Aunque era el cuerpo de Sunburst controlado por la orquídea-pulpo que era Royalinda, por un momento, a pesar de todo, los ojos de Trixie captaron algo más profundo.
+El rostro de Royalinda pareció hundirse en sombras. Y aunque realmente se trataba del cuerpo de Sunburst controlado por la orquídea-pulpo Royalinda, en ese momento, los ojos de Trixie empezaban a captar algo más profundo.
 
-"Pero el hambre no podía esperar... y nosotros tampoco..." Un aire tétrico envolvió el lugar donde Royalinda estaba sentada. Fue un instante, apenas perceptible. Quizá solo lo imaginó, pero Trixie creyó ver, en un breve parpadeo, una lágrima de sangre deslizarse por el rostro de Royalinda.
+"Pero el hambre no podía esperar... y pronto ... nosotros tampoco..." Un aire tétrico envolvia el lugar donde Royalinda estaba sentada. Fue un instante, apenas perceptible. Quizá solo lo imaginó, pero Trixie creyó ver, en un breve parpadeo, lágrimas de sangre deslizarse por el rostro de Royalinda.
+
+
 
 [Royalinda rie]
 
