@@ -699,13 +699,13 @@ Desde el corazón de esa sombra, el viento soplaba con violencia, el firmamento 
 
 Géiseres de agua comenzaron a estallar alrededor del castillo, cuatro estrellas brillantes se aproximaban con rapidez hacia ellos.
 
-La medianoche llegaba a su apogeo.
+La 'medianoche' se elevaba en lo alto.
 
 El tormentoso viaje que los Young-Six habían vivido junto a su problemática maestra sustituta y consejera, desde la mañana hasta la tarde, había terminado.
 
 Trixie Lulamoon seguiría su camino sin ellos.
 
-Pero los Young-Six, desamparados ante el avance de la medianoche, aún tenían un papel que cumplir en ese largo y penoso día.
+Pero los Young-Six, desamparados ante el avance de la 'medianoche', aún tenían un papel que cumplir en ese largo y penoso día.
 
 No obstante, esa sería… otra historia.
 

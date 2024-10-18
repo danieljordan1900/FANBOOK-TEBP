@@ -310,8 +310,6 @@ El rostro de Royalinda pareció hundirse en sombras. Aunque realmente era el cue
 
 Una sensación de incertidumbre invadió a Trixie. Era un sentimiento difícil de describir, como el de una niña caminando entre los escombros de su hogar calcinado por un incendio.
 
-Un incendio que ella misma había causado.
-
 La culpa que antes había sentido volvió a inundarla.
 
 De pronto, Royalinda estalló en risas. La escena anterior, que había destilado un aparente dolor interno, desapareció como si nunca hubiera ocurrido. Ahora, con una voz maligna, miraba directamente a Trixie. "No tienes por qué angustiarte por algo así. Era de esperarse que sucediera. Después de todo, somos monstruos, como bien dijiste. Habría pasado de una forma u otra."
@@ -324,27 +322,97 @@ Trixie no respondió. La falsa seguridad en las palabras de Royalinda solo profu
 
 Al otro lado de la mesa, Royalinda continuaba su apasionado discurso sin prestarle atención, mientras Trixie jadeaba por el golpe.
 
-"Mis otros hermanos no sobrevivieron. Eran débiles. Yo, en cambio, soy más fuerte y sé muy bien cuál es mi lugar en este mundo. Es un destino glorioso, que solo los más fuertes pueden alcanzar. ¡Y lo alcanzaré! Seré conocida en todas partes, mi nombre resonará en todas las lenguas, desde las raíces de la tierra hasta los confines del tercer cielo. Me alzaré imbatible y aplastaré a todos mis enemigos. No dejaré con vida a nadie que se me oponga. Mi poder será tan grande que ni los señores oscuros seran una amenaza. ¡Yo seré la nueva gobernante absoluta! Nada podrá superarme. ¡Jajajaja!"
+"Mis otros hermanos no sobrevivieron. Eran débiles. Yo, en cambio, soy más fuerte y sé muy bien cuál es mi lugar en este mundo. Es un destino glorioso, que solo los más fuertes pueden alcanzar. ¡Y lo alcanzaré! Seré conocida en todas partes, mi nombre resonará en todas las lenguas, desde las raíces de la tierra hasta los confines del tercer cielo. Me alzaré imbatible y aplastaré a todos mis enemigos. No dejaré con vida a nadie que se me oponga. Mi poder será tan grande que ni los señores oscuros seran una amenaza para mi. ¡Yo seré la nueva gobernante absoluta! ¡Nada podrá superarme! ¡Jajajaja!"
 
-Ante los delirios de quien, en otras circunstancias, habría sido como una hija, Trixie agachó la cabeza, desolada.
+Ante los delirios de quien, en otras circunstancias, habría podido ser como una hija, Trixie agachó la cabeza, desolada.
 
 //----------
 
-"Starlight... Sunburst... Los niños ...y esto.." el rostro de sus amigos y los alumnos de la escuela danzaban en los pensamientos de la unicornio. La culpa que habia sentido en la tarde despues de confesar sus crimenes a los Young-Six habia regresado con fuerza renovada a su interior.
+En los exteriores del castillo de Twilight ... la 'medianoche' alcanzaba su climax.
 
-¿Cuantos mas serian lastimados por su culpa ese dia?
+//----------
 
-Trixie queria llorar de nuevo, sin embargo en sus ojos secos no habia ya ninguna lagrima que derramar. 
+De repente, Royalinda, que había estado riendo sin freno, se detuvo en seco, como si percibiera algo más en la habitación.
 
-Sintiendo un sabor agrio que se exparcia en su boca y un nudo creciente en su garganta. Trixie tiro la taza de te en la mesa interrumpiendo la tranquilidad de la habitacion. Las manticoras doradas se agitaron levemente, Royalinda levanto la mirada.
+Trixie levantó la cabeza.
 
-"¿Que quieres de mi?" pregunto con indignacion Trixie. Pero en un gesto debil y apenas amenazante debido a la fatiga que aun la embargaba.
+Tras un breve momento de silencio, Royalinda soltó una sonrisa inusual.
 
-"¿Que quiero de ti?¿A que te refieres?" pregunto Royalinda con una aparente ingenuidad.
+"Tienes que ver esto. Te sorprenderá mucho," anunció de pronto. El cuerpo de Sunburst, que hasta entonces había estado sentado, se movió, adoptando una postura más visible, y levantó una pata hacia el cielo. La magia de su cuerno comenzó a brillar y, en un destello celeste acompañado por un sonido similar a una campanilla, la luz inundó la habitación.
 
-"Dijiste que querias acabar conmigo personalmente ¿Porque aun no lo haces?"
+Trixie, sorprendida por este repentino movimiento, observó cómo las paredes de la biblioteca titilaban. Un instante después, fueron cubiertas por una luz blanquecina que devoró rápidamente todos los contornos de la habitación. Los cuadros, la chimenea, e incluso el suelo fueron absorbidos por esta luminosidad, dejando solo la gran mesa del mapa, las armaduras, Royalinda y la propia Trixie visibles.
 
-"Uhmmm" Royalinda hizo una larga pausa. "Responder esa pregunta se siente estupido. Haste una mejor. ¿Que tanto crees que te odio?" 
+"¡¿Qué estás haciendo?!"
+
+"No tienes por qué alterarte. Esta magia demora un poco. Observa..." respondió Royalinda, señalando a su lado izquierdo.
+
+Trixie, solo viendo la misma luz blanca que envolvía la habitación, entrecerró los ojos, esperando ver algo más.
+
+Entonces, como si fuera la imagen de una película que comenzaba, la luz blanca se desvaneció y un escenario desconocido se desplegó ante ella.
+
+"Heeeee..." Trixie no pudo evitar estremecerse ante lo que veían sus ojos. Inquieta, miró a todos lados, intentando comprender.
+
+"Es fascinante..." murmuró Royalinda con una mirada perversa, también observando en todas direcciones.
+
+Era el mundo exterior. Más precisamente, el mundo exterior al castillo, que se mostraba en todas direcciones. El hechizo de Royalinda había transformado las superficies de la habitación para reflejar la luz que venía de más allá del castillo, creando una vista panorámica de casi 360 grados.
+
+Trixie comprendió esto al reconocer los cimientos del castillo a una prodigiosa distancia debajo de ella. Era como si estuviera sentada en el cielo mismo, pero sin sentir la brisa del viento.
+
+Sin embargo, en medio de esa sorprendente magia óptica, eso fue lo único familiar que pudo reconocer.
+
+Nubes tan negras como el abismo rotaban a su alrededor en un movimiento circular, como si estuvieran en el ojo de un huracán que desgarraba la realidad. Abajo, donde antes había estado la gran pradera verde con flores y árboles, ahora se extendía un océano turbulento, rojo como la sangre, cuyas violentas olas azotaban enormes rocas negras, circulares, como meteoritos estrellados.
+
+"Esto..." Trixie no encontraba palabras para expresar su conmoción. Apenas podía creer lo que veía. Una parte de su cerebro negaba que ese paisaje infernal pudiera haber sido el lugar donde tantas veces había paseado con sus amigos. ¡Había cruzado esas colinas esa misma mañana! ¡Esto debía ser una ilusión!
+
+"¡No caeré en tus ilusiones!" gritó Trixie, en un estado de negación.
+
+"¿Oh? ¿De verdad crees que esto es una ilusión? Jujuju, quería mostrarte esto antes. Pero la batalla que se libraba alrededor del castillo aún no había terminado. No quería darte falsas esperanzas con el destino de esos niños."
+
+"¿Qué?" respondió Trixie, incapaz de mantener su semblante controlado.
+
+"Mira allá," señaló Royalinda más abajo.
+
+Al desviar la mirada en esa dirección, Trixie vio algo que la congeló por completo.
+
+Un enorme cuerpo circular, tan grande como una colina, ardía en la única superficie seca visible en medio de ese mar rojo. La estructura anormal, con patrones en espiral y fuego esmeralda brotando de agujeros rotos, delataba un enfrentamiento violento.
+
+Trixie reconoció el cuerpo sin vida del que otrora fue el terrible monstruo YRAG.
+
+El asombro de Trixie, quien hasta entonces había creído haber acabado con ese monstruo, fue aplastado por la revelación que siguió.
+
+No muy lejos del caparazón destrozado de YRAG, una enorme estatua blanca yacía rota en el suelo. A esa distancia, se asemejaba a los restos de un delicado juguete roto, pero Trixie pudo distinguir la figura que formaban esas piezas.
+
+Era la de un gran elefante...
+
+"Ocellus..." no pudo contener el quejido que salió de su boca. Trixie sentía que el mundo se derrumbaba a su alrededor... No quería pensar más... No quería saber más...
+
+"¡Jajajaja!" Royalinda estalló en carcajadas. "Las cosas no resultan como uno espera. Suele pasar, 'lo importante es seguir adelante y aprender de tus errores'. ¿No es eso lo que enseñan en tu Escuela para Tontos? Cualquiera puede aprender eso. Cualquiera menos tú, por supuesto."
+
+Trixie, esforzándose por no derrumbarse, levantó la mirada y exhaló con fuerza. Miró al cielo.
+
+Un vasto espacio cósmico se movía rápidamente en el firmamento. Rodeados por el ojo del huracan de tinieblas. Estrellas, mundos, constelaciones... todo desfilaba a si vista.
+
+Mareada, apenas firme, Trixie volvió su rostro hacia Royalinda.
+
+"Creo que ya es suficiente." Royalinda chocó los cascos, y de pronto la vista a su alrededor se apagó como una pantalla, devolviendo la habitación a su estado anterior. Luego, tranquilamente, tomó otra taza de té.
+
+Trixie, en un estado catatónico, observaba la nada. Pero ella aún podía recordar...
+
+"Starlight... Sunburst... Los niños... y esto..." El rostro de sus amigos y alumnos de la escuela danzaban en los pensamientos de la unicornio.
+
+¿Cuánto más fallaría ese día?
+
+Trixie quería llorar, pero en sus ojos secos ya no había lágrimas que derramar.
+
+Con un sabor agrio que se esparcía en su boca y un nudo creciente en su garganta, Trixie tiró la taza de té sobre la mesa, rompiendo el silencio de la habitación. Las mantícoras doradas se agitaron levemente, y Royalinda afiló la mirada.
+
+"¿Qué quieres de mí?" preguntó Trixie con indignación, pero en un gesto débil, apenas amenazante debido a su fatiga.
+
+"¿Qué quiero de ti? ¿A qué te refieres?" preguntó Royalinda con aparente ingenuidad.
+
+"Dijiste que querías acabar conmigo personalmente. ¿Por qué no lo has hecho aún?"
+
+"Uhmmm," Royalinda hizo una pausa. "Esa es una pregunta estúpida. Hazte una mejor. ¿Qué tanto crees que te odio?"
 
 
 
