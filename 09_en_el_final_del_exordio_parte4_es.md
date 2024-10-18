@@ -166,45 +166,51 @@ Tras echar un poco de azúcar en su bebida y revolverla con una cucharita, ambas
 
 En la biblioteca privada de Starlight Glimmer, dentro del castillo de Twilight, custodiada por dos mantícoras doradas a sus flancos, Trixie Lulamoon probó el té tibio que acababa de prepararse.
 
-"Esto es mi culpa..." no pudo evitar repetirse angustiada en sus adentros mientras tomaba de la taza entre temblores. A pesar de esto, Royalinda, su captora, al otro lado de la gran mesa del mapa, hojeaba concentrada unos documentos, en un aparente desinterés por las acciones de su prisionera.
+"Esto es mi culpa..." no pudo evitar repetirse angustiada en sus adentros mientras tomaba de la taza. A pesar de su fingida postura confiada los temblores en sus cascos deletaban su verdadero estado de animo. Royalinda, su captora, al otro lado de la gran mesa del mapa, hojeaba concentrada unos pergaminos, en un aparente desinterés por las acciones de su prisionera.
 
 Por supuesto, esto último realmente no era así.
 
 El cuerpo de Sunburst, cuyos ojos se veían enrojecidos por la posesión mental en la que se encontraba, era solo un cascarón, una marioneta. La verdadera identidad de la criatura responsable de todo el sufrimiento que habían vivido Trixie y los Young-Six durante esa tarde se encontraba en el cuello del subdirector de la Escuela de la Amistad.
 
-Apenas visible entre el desordenado cabello de Sunburst, una diminuta criatura, semejante a una orquídea con tentáculos de pulpo, asomaba pegada en la parte posterior del cuello del corcel. Este ser rosa, de cuerpo palpitante, tenía dos puntos negros visibles en su cabeza, que servían de ojos y estaban fijos en la dirección de la cautiva unicornio.
+Apenas visible entre el desordenado cabello de Sunburst, una diminuta criatura, semejante a una orquídea con tentáculos de pulpo, asomaba pegada en la nuca del corcel. Este ser rosa, de cuerpo palpitante, tenia (aparte de sus tentaculos) dos apendices de puntas negras que sobresalian de su blanda piel, estos eran sus organos sensoriales, los cuales (tambien sirviendole de ojos) estaban fijos en la dirección de Trixie.
 
-"Ugh..." Trixie sintió náuseas al mantener la mirada sobre el parásito que se agitaba en el cuello de su amigo. Incapaz de soportarlo más, apartó la vista.
+"Ugh..." Trixie sintiendo náuseas al mantener la mirada sobre el parásito que se agitaba en el cuello de su amigo. Incapaz de soportarlo más, apartó la vista.
 
-Esta era Royalinda, la última orquídea-pulpo, completamente alerta a todos los movimientos de Trixie.
+Esta era Royalinda, la última orquídea-pulpo, completamente alerta a cada movimiento de Trixie.
 
 "¿Sucede algo?" preguntó Royalinda sin levantar la mirada de los documentos.
 
-"No, no es nada..." respondió Trixie sin volver la vista, en aparente calma.
+"No, no es nada..." respondió Trixie, manteniendo la vista baja, aparentando calma.
 
 "¿De verdad? Si aún estás agotada, puedo restaurar tu salud aún más. Solo pídemelo."
 
 Era verdad. Poco después de que Trixie despertara desorientada en el estudio de Starlight, Royalinda curó sus heridas de inmediato y la ayudó a recuperar su lucidez.
 
-En otras circunstancias, habría agradecido fervientemente aquel gesto, pero dado quién era su captora, eso le resultaba imposible. De hecho, le costó bastante aceptarlo. Al principio, había creído que todo era un sueño o que aún estaba soñando; quiza que Sunburst y los demas le estaban jugando una cruel broma como castigo, sin embargo, tras ser electrificada por Royalinda un par de veces más, poco a poco comenzó a calmarse y a aceptar la realidad en la que se encontraba.
+En otras circunstancias, habría agradecido fervientemente aquel gesto, pero dado quién era su captora, eso le resultaba imposible. Le costó aceptarlo. De hecho, al principio no lo acepto, pensó que todo era un sueño o que aun estaba soñando, o que quiza, Sunburst y los demás le estaban jugando una cruel broma como castigo. Sin embargo, tras ser electrificada por Royalinda un par de veces, poco a poco empezó a calmarse y a aceptar la realidad en la que se encontraba.
 
-Una realidad horrible, dolorosa, una pesadilla vivida que casi le hacía echar de menos estar de vuelta en el gran atrio del castillo enfrentándose al monstruo caracol de antes.
+No había muerto. Y ahora estaba en las garras del último enemigo que esperaba encontrarse ese día.
 
-"Descuida, así está bien..." respondió Trixie con su falsa sonrisa, tomando entre sorbos de su té.
+Trixie bebía con fuerza de su té, el sonido resonando en la habitación. A pesar de la serenidad que transmitían los decorados, el ambiente era inquietante, haciendo aún más surrealista la situación que se desarrollaba.
 
-"Está bien, pero aquí estoy para servirte... madre", terminó diciendo Royalinda, haciendo énfasis en su última palabra.
+"Esto es una pesadilla..." no pudo evitar pensar la unicornio, casi echando de menos estar de vuelta en el gran atrio del castillo, enfrentándose al monstruo caracol de antes.
+
+En medio de su inquietud, mirando de reojo, notó que Royalinda (en el cuerpo de Sunburst) había dejado de leer y ahora la observaba, como si esperara algo.
+
+"Descuida, así está bien..." respondió Trixie torpemente sin volverse, intentando cerrar la conversación con una falsa sonrisa, tomando otro sorbo de té.
+
+"Ahh... Está bien, pero recuerda que estoy aquí para servirte... madre", terminó diciendo Royalinda, volviendo su atención a los documentos, pero remarcando la última palabra.
 
 Madre.
 
-Trixie sentía algo en lo profundo de su pecho moverse cada vez que ese ser decía esa palabra. Y no era su corazón, sino su estómago, estrangulado por el repudio que nacía de su interior. Una ira que ya no tenía fuerzas para manifestarse físicamente, pero que aún se expresaba como una náusea creciente y dolorosa que invadía todas sus entrañas.
+Cada vez que ese ser pronunciaba esa palabra, algo se movía en lo profundo del pecho de Trixie. No era su corazón, sino su estómago, que se retorcía con el repudio que nacía de su interior. Sentía una ira que ya no tenía fuerzas para manifestarse físicamente, pero que aún se expresaba como una náusea creciente y dolorosa que invadía todas sus entrañas.
 
-Deteniéndose un momento, Trixie miró de reojo a Royalinda. Ella también sonreía, sin mirarla.
+Deteniéndose un momento, Trixie volvió a mirar de reojo a Royalinda. Esta sonreía, sin mirarla.
 
-Unos deseos intensos de tirarle el té directamente a la cara y quitarle esa estúpida sonrisa invadieron su mente. Pero fue un sentimiento fugaz.
+El impulso de tirarle el té en la cara y borrar esa estúpida sonrisa invadió su mente por un instante. Pero fue un sentimiento fugaz.
 
-La culpa nuevamente la dominó.
+La culpa volvió a dominarla.
 
-La orquídea-pulpo ante ella, Royalinda, era la encarnación física de todo su fracaso como profesional, amiga y poni responsable. Era tambien la causante de gran parte de las desgracias que habían vivido Trixie y los Young-Six durante la tarde. No obstante, aquel fruto del mal, aquel parásito maligno, no había nacido de la nada.
+La orquídea-pulpo ante ella, Royalinda, era la encarnación física de todo su fracaso como profesional, amiga y poni responsable. Era tambien la causante de gran parte de las desgracias que habían vivido Trixie y los Young-Six durante la tarde. No obstante, aquel fruto del maligno, aquel parásito infernal, no había nacido de la nada.
 
 Alguien lo había alimentado y cuidado, permitiéndole existir en este mundo. Y ese alguien insensato, arrogante y descuidado que habia sido capaz de hacer algo como eso no era nadie más ni nadie menos que la misma Trixie.
 
@@ -218,9 +224,9 @@ Al otro lado de la mesa, Royalinda, siempre atenta a los movimientos de Trixie, 
 
 "¿Te gustan, verdad?"
 
-Sacada de su estado depresivo, Trixie se sobresaltó. "¿Disculpa?"
+Sacada de su estado depresivo, Trixie se sobresaltó y miro de vuelta a Royalinda. "¿Disculpa?"
 
-Girando la cabeza de Sunburst en un movimiento demasiado mecánico para ser natural, Royalinda señaló con el mentón a la mantícora dorada a su lado.
+Girando la cabeza de Sunburst en un movimiento demasiado mecánico para ser natural, Royalinda señaló con el mentón a la mantícora dorada al costado de Trixie.
 
 "Las hice tal como las habías diseñado. Claro, añadí más funcionalidades para mis necesidades, pero espero no haber alterado demasiado tu trabajo original."
 
@@ -232,7 +238,7 @@ Podía recordarlo. Aquellas armaduras eran las mismas que había planificado cua
 
 Estos mismos planos eran los que Royalinda había encontrado y usado después de tomar el control del puesto de seguridad.
 
-Pero entonces... una pregunta surgió dentro de Trixie. 
+"Espera un momento ...." una pregunta surgió dentro de Trixie. 
 
 En el pasado, ella había insistido a Starlight en usar algún tipo de magia poderosa para crear el sistema de seguridad perfecto para el castillo. Sin embargo, Starlight lo negó rotundamente. Entre los motivos, además de los costos y el peligro inherente, estaba el hecho de que tal magia era muy difícil de realizar y poco conocida.
 
@@ -240,25 +246,23 @@ Si su amiga Starlight, una magnífica hechicera de alto nivel, no era capaz de r
 
 "¿Cómo es que las creaste?" preguntó Trixie, frunciendo el ceño.
 
-"Fu fu fu..." rió Royalinda con un evidente aire de superioridad. "Te sorprendería lo mucho que puedes lograr si tienes a tu disposición una mente tan brillante como esta."
+"Fu fu fu..." rió Royalinda con un evidente aire de superioridad. "Te sorprendería lo mucho que puedes lograr si tienes a tu disposición una mente tan brillante como esta." termino de decir dandose unos golpesitos en la frente con una de sus pezuñas.
 
-"Eso es..." añadió, aún confundida, Trixie. Royalinda respondió con una sonrisa aún más grande mientras se golpeaba la cabeza con una de sus pezuñas.
+"Eso es..." añadió, aún confundida, Trixie. Royalinda respondió con una sonrisa aún más grande.
 
 "Tu amigo tiene en su cabeza una vasta enciclopedia sobre magia, hechizos, ritos y muchos más conocimientos mágicos de los que jamás habría soñado obtener. Todo ordenado y listo para usar de inmediato. ¡Ah, es magnífico!" El tono de voz de Royalinda revelaba el sincero éxtasis que recorría su cuerpo en ese momento. "Puedo decir con total seguridad que su conocimiento es incluso mayor que el de tu querida Starlight. Casi siento lástima por alguien así, incapaz de usar nada de todo ese saber. Fu fu fu. Pero no hay que preocuparse, yo sí le daré un buen uso."
 
-Trixie por fin lo entendio. Royalinda habia usado el conocimiento de Sunburst para crear aquel ejercito implacable de armaduras. Aunque Sunburst era un unicornio que tenia muy poco talento para la magia, su basto conocimiento de esta misma y el mismo talento magico de Royalinda (quien carecia de las limitaciones de su anfitrio), habian sido los factores que habian permitido el surgimiento de tan tragico escenario. 
+Trixie por fin lo entendio. Royalinda habia usado el conocimiento de Sunburst para crear aquel ejercito implacable de armaduras. Aunque Sunburst era un unicornio que tenia muy poco talento para la magia, su basto conocimiento de esta misma combinado con el talento magico de Royalinda (quien carecia de las limitaciones de su anfitrio), habian sido los factores que habian permitido el surgimiento de tan tragico escenario. 
 
-"Sunburst ..."mumuro Trixie angustiada. Notando los sentimientos de su prisionera, Royalinda comenzo a maltratar uno de sus cascos del cuerpo de Sunburst con una pluma, sin mostrar el menor indicio de dolor.
+"Sunburst ..."mumuro Trixie angustiada. Notando los sentimientos de su prisionera, Royalinda provocativamente comenzo a maltratar uno de sus cascos del cuerpo de Sunburst con una pluma, sin mostrar el menor indicio de dolor.
 
-La ira por fin se reflejó en el rostro de Trixie al ver cómo Royalinda usaba el cuerpo de su amigo como si fuera un juguete
+La ira por fin se reflejó en el rostro de Trixie al ver cómo Royalinda usaba el cuerpo de su amigo como si fuera un juguete. Pero antes que Trixie dijera algo, Royalinda hablo: "Oh, no pongas esa cara. No pienso hacerle nada a este magnífico recipiente. Voy a cuidar bien de él, pero no puedo decir lo mismo de tus otros 'amigos'."
 
-"Oh, no pongas esa cara. No pienso hacerle nada a este magnífico recipiente. Voy a cuidar bien de él, pero no puedo decir lo mismo de tus otros 'amigos'."
-
-El rostro de Trixie cambió, como al de un poni sorprendido en medio de la noche por un mounstruo. Entonces, aquello que debió haber preguntado mucho antes, finalmente salió de su boca.
+El rostro de Trixie cambió, como al de un poni sorprendido en medio de la noche por un mounstruo espeluznate. Entonces, aquello que debió haber preguntado mucho antes, finalmente salió de su boca.
 
 "¿Qué le hiciste a Starlight?"
 
-"Tardaste bastante en preguntar por ella ¿no te parece?" respondió Royalinda relajada, sin sentirse intimidada por la mirada fulminante de Trixie. Aunque, por alguna razón, su buen humor parecía haber desaparecido de golpe.
+"Ja, ja, ja. Tardaste bastante en preguntar por ella ¿no te parece?" respondió Royalinda relajada, sin sentirse intimidada por la mirada fulminante de Trixie. Aunque, por alguna razón, su buen humor parecía haber desaparecido de golpe.
 
 "¡¿Qué le hiciste?!" repitió Trixie con el rostro deformado.
 
@@ -270,42 +274,67 @@ El rostro de Trixie cambió, como al de un poni sorprendido en medio de la noche
 
 Trixie, con su rostro aún pegado contra el frío cristal de la mesa, respiraba con intensidad, ventilando su frustración e ira. La escena actual no era una novedad en la habitacion; ya se había repetido varias veces antes, y por los mismos motivos. A pesar de la aparente conversación natural entre ambas, Royalinda no había contestado ninguna de las preguntas de Trixie sobre el paradero o estado de sus amigos. Tampoco había respondido directamente sobre su verdadera identidad o sus intenciones. Ni siquiera le había dicho su nombre. Hasta ahora, Trixie solo había sido una espectadora pasiva que recibia respuestas indirectas o que no respondian nada. Y cada vez que insistia era torturada con electricidad o el apretar de las cadenas.
 
-"¡No jugaras conmigo!" pensó, girando la cabeza en dirección a Royalinda. Hasta ese momento había seguido su juego, pero ahora que su cuerpo y mente comenzaban lentamente a recuperarse, sentía cómo su espíritu de lucha se encendía de nuevo dentro de ella.
+Girando la cabeza en dirección a Royalinda, los ojos de Trixie ardian. Hasta ese momento había seguido su juego, pero ahora que su cuerpo y mente comenzaban lentamente a recuperarse, sentía cómo su espíritu de lucha se encendía de nuevo dentro de ella.
 
 Esa chispa en su mirada era precisamente lo que Royalinda había estado esperando.
 
-"Te ves mucho más recuperada, eso está muy bien, madre."
+"Te ves mucho más recuperada. Eso está muy bien, madre."
 
-Las cejas de Trixie se fruncieron aún más. Escupió con desprecio: "Ya basta. ¡No eres mi hija!"
+Las cejas de Trixie se fruncieron aún más. Escupió con desprecio: "¡Ya basta! ¡No eres mi hija!"
 
-"Jamás dije que lo fuera. Es solo una forma muy... amable de referirme a ti. Llamarte por tu verdadero nombre o ese otro ridiculo titulo que usas me resulta... repulsivo"
+"Jamás dije que lo fuera. Es solo una forma muy... amable de referirme a ti. Llamarte por tu verdadero nombre o ese otro ridículo título que usas me resulta... repulsivo."
 
-La fuerza que jalaba las cadenas de Trixie desaparecio, pero el dolor en sus patas y cuello no.
+La fuerza que jalaba las cadenas de Trixie desapareció, pero el dolor en sus patas y cuello seguía ahí.
 
-Nuevamente Trixie pudo incorporarse en su asiento.
+Adolorida, Trixie logró incorporarse en su asiento, aunque su mirada permanecía desafiante.
 
+"¿Me dirás qué hiciste con mis amigos o no?" insistió Trixie.
 
-considerando que tú nunca nos diste un nombre a nosotros.
+Royalinda suspiró, visiblemente cansada.
 
-"¿Nosotros?" preguntó Trixie, sintiendo un cambio en el aire.
+"¿Acaso tus amigos son lo único en lo que puedes pensar? Deberías preocuparte más por ti misma, como siempre lo haces."
 
-"Si 'nosotros' ... éramos muchos. Mis hermanos y hermanas," comenzó a responder Royalinda reclinandose en su asiento y su voz bajando mientras su mirada se perdía en un rincón vacío de la habitación, como si contemplara otro lugar y momento. "Todos confiaban en ti, esperaban que volvieras algún día, que nos trajeras el alimento, como siempre lo hacías. Todos eran tan inocentes, tan pacientes... jsjs... Yo también lo fui."
+"Ellos son más que amigos para mí. Son como mi familia. Un monstruo como tú no lo entendería."
 
-El rostro de Royalinda pareció hundirse en sombras. Y aunque realmente se trataba del cuerpo de Sunburst controlado por la orquídea-pulpo Royalinda, en ese momento, los ojos de Trixie empezaban a captar algo más profundo.
+Los ojos de Royalinda centellearon por un momento, sintiendo la provocación de Trixie, pero no se alteró. En cambio, una expresión extraña apareció en su rostro.
 
-"Pero el hambre no podía esperar... y pronto ... nosotros tampoco..." Un aire tétrico envolvia el lugar donde Royalinda estaba sentada. Fue un instante, apenas perceptible. Quizá solo lo imaginó, pero Trixie creyó ver, en un breve parpadeo, lágrimas de sangre deslizarse por el rostro de Royalinda.
+"Son como una familia para ti... Ya veo. Nosotros también podemos entender eso, ¿sabes?" respondió Royalinda con un tono de voz muy distinto al que había mostrado hasta entonces.
 
+"¿Nosotros?" repitió Trixie, sintiendo un cambio en el aire.
 
+"Sí, nosotros... éramos muchos. Mis hermanos y hermanas," comenzó a decir Royalinda, reclinándose en su asiento. Su voz bajaba por momentos, y su mirada parecía perdida en algún rincón vacío de la habitación, como si contemplara otro lugar, otro momento. "Todos confiaban en ti, esperaban que volvieras algún día, que nos trajeras alimento, como siempre lo hacías. Todos eran tan inocentes, tan pacientes... Ja, yo también lo fui."
 
-[Royalinda rie]
+El rostro de Royalinda pareció hundirse en sombras. Aunque realmente era el cuerpo de Sunburst controlado por la orquídea-pulpo, en ese momento, los ojos de Trixie captaban algo más profundo.
 
-[Trixie arrepentida]
+"Pero el hambre no podía esperar... y pronto, nosotros tampoco..." Un aire tétrico envolvió el lugar donde Royalinda estaba sentada. Fue solo un instante, apenas perceptible, pero Trixie creyó ver, en un breve parpadeo, lágrimas de sangre deslizarse por el rostro de Royalinda.
+
+Una sensación de incertidumbre invadió a Trixie. Era un sentimiento difícil de describir, como el de una niña caminando entre los escombros de su hogar calcinado por un incendio.
+
+Un incendio que ella misma había causado.
+
+La culpa que antes había sentido volvió a inundarla.
+
+De pronto, Royalinda estalló en risas. La escena anterior, que había destilado un aparente dolor interno, desapareció como si nunca hubiera ocurrido. Ahora, con una voz maligna, miraba directamente a Trixie. "No tienes por qué angustiarte por algo así. Era de esperarse que sucediera. Después de todo, somos monstruos, como bien dijiste. Habría pasado de una forma u otra."
+
+Trixie no respondió. La falsa seguridad en las palabras de Royalinda solo profundizaba su culpa. Recordaba sus estúpidos actos en la Escuela de la Amistad...
+
+"Abandonarnos en el bosque nos enseñó mucho sobre cómo sobrevivir. Fue difícil, pero aprendimos la lección y nos hicimos más fuertes. Puedo estar muy agradecida por eso..."
+
+"Lo siento..." intentó decir Trixie, pero de inmediato un agarre mágico la silenció. No fueron las cadenas ni un rayo eléctrico como antes, sino un golpe mágico violento, como una bofetada invisible, lo que la impactó.
+
+Al otro lado de la mesa, Royalinda continuaba su apasionado discurso sin prestarle atención, mientras Trixie jadeaba por el golpe.
+
+"Mis otros hermanos no sobrevivieron. Eran débiles. Yo, en cambio, soy más fuerte y sé muy bien cuál es mi lugar en este mundo. Es un destino glorioso, que solo los más fuertes pueden alcanzar. ¡Y lo alcanzaré! Seré conocida en todas partes, mi nombre resonará en todas las lenguas, desde las raíces de la tierra hasta los confines del tercer cielo. Me alzaré imbatible y aplastaré a todos mis enemigos. No dejaré con vida a nadie que se me oponga. Mi poder será tan grande que ni los señores oscuros seran una amenaza. ¡Yo seré la nueva gobernante absoluta! Nada podrá superarme. ¡Jajajaja!"
+
+Ante los delirios de quien, en otras circunstancias, habría sido como una hija, Trixie agachó la cabeza, desolada.
+
+//----------
 
 "Starlight... Sunburst... Los niños ...y esto.." el rostro de sus amigos y los alumnos de la escuela danzaban en los pensamientos de la unicornio. La culpa que habia sentido en la tarde despues de confesar sus crimenes a los Young-Six habia regresado con fuerza renovada a su interior.
 
 ¿Cuantos mas serian lastimados por su culpa ese dia?
 
-Trixie queria llorar de nuevo, sin embargo en sus ojos secos no habia ya ninguna lagrima que derramar. [mas texto]
+Trixie queria llorar de nuevo, sin embargo en sus ojos secos no habia ya ninguna lagrima que derramar. 
 
 Sintiendo un sabor agrio que se exparcia en su boca y un nudo creciente en su garganta. Trixie tiro la taza de te en la mesa interrumpiendo la tranquilidad de la habitacion. Las manticoras doradas se agitaron levemente, Royalinda levanto la mirada.
 
@@ -315,7 +344,7 @@ Sintiendo un sabor agrio que se exparcia en su boca y un nudo creciente en su ga
 
 "Dijiste que querias acabar conmigo personalmente ¿Porque aun no lo haces?"
 
-"Uhmmm" Royalinda hizo una larga pausa. "Esa es una pregunta estupida. Haste una mejor. ¿Que tanto crees que te odio?" 
+"Uhmmm" Royalinda hizo una larga pausa. "Responder esa pregunta se siente estupido. Haste una mejor. ¿Que tanto crees que te odio?" 
 
 
 
