@@ -322,7 +322,7 @@ Trixie no respondió. La falsa seguridad en las palabras de Royalinda solo profu
 
 Al otro lado de la mesa, Royalinda continuaba su apasionado discurso sin prestarle atención, mientras Trixie jadeaba por el golpe.
 
-"Mis otros hermanos no sobrevivieron. Eran débiles. Yo, en cambio, soy más fuerte y sé muy bien cuál es mi lugar en este mundo. Es un destino glorioso, que solo los más fuertes pueden alcanzar. ¡Y lo alcanzaré! Seré conocida en todas partes, mi nombre resonará en todas las lenguas, desde las raíces de la tierra hasta los confines del tercer cielo. Me alzaré imbatible y aplastaré a todos mis enemigos. No dejaré con vida a nadie que se me oponga. Mi poder será tan grande que ni los señores oscuros seran una amenaza para mi. ¡Yo seré la nueva gobernante absoluta! ¡Nada podrá superarme! ¡Jajajaja!"
+"Mis otros hermanos no sobrevivieron. Eran débiles. Yo, en cambio, soy más fuerte y sé muy bien cuál es mi lugar en este mundo. Es un destino glorioso, que solo los más fuertes pueden alcanzar. ¡Y lo alcanzaré! Seré conocida en todas partes, mi nombre resonará en todas las lenguas, desde las raíces de la misma tierra hasta los confines del tercer cielo. Me alzaré imbatible y aplastaré a todos mis enemigos. No dejaré con vida a nadie que se me oponga. Mi poder será tan grande que ni los señores oscuros seran una amenaza para mi. ¡Yo, seré la nueva gobernante absoluta! ¡Nada podrá superarme! ¡Jajajaja!"
 
 Ante los delirios de quien, en otras circunstancias, habría podido ser como una hija, Trixie agachó la cabeza, desolada.
 
@@ -386,7 +386,7 @@ Era la de un gran elefante...
 
 "Ocellus..." no pudo contener el quejido que escapó de su boca. El mundo daba vueltas a su alrededor, el aire se le hacía escaso. No quería pensar más... no quería saber más...
 
-"¡Jajajaja!" Royalinda estalló en carcajadas. "Las cosas no resultan como uno espera. Suele pasar, 'lo importante es seguir adelante y aprender de tus errores'. ¿No es eso algo que enseñan en tu Escuela para Tontos? Cualquiera puede aprender eso. Cualquiera menos tú, por supuesto."
+"¡Jajajaja!" Royalinda estalló en carcajadas. "Las cosas no resultan como uno espera. lo entiendo, suele pasar, 'lo importante es seguir adelante y aprender de tus errores'. ¿No es eso algo que enseñan en tu Escuela para Tontos? Jaja Cualquiera puede aprender eso. Cualquiera menos tú, por supuesto."
 
 Trixie, esforzándose por no derrumbarse, respiraba con dificultad, sintiendo el sudor frío recorrer su cuerpo. Sus ojos, enrojecidos por la presión, se fijaron en el cielo sobre ella.
 
