@@ -396,7 +396,7 @@ Mareada, apenas logrando mantenerse en pie, Trixie volvió su mirada hacia Royal
 
 "Cuando despertaste esta mañana, ¿imaginaste que tu mundo acabaría de esta forma? Ju ju. Creo que no," dijo Royalinda con una satisfacción evidente, mientras chocaba los cascos. De pronto, la vista ilusoria se apagó como una pantalla, y la habitación volvió a su estado original. Royalinda se acomodó con tranquilidad, sirviéndose otra taza de té, como si nada hubiera pasado.
 
-Trixie, en un estado casi catatónico, fijó la vista en el vacío. Su mente, enredada en un torbellino de recuerdos.
+Trixie, en un estado casi catatónico, fijó la vista en el vacío de la habitacion. Su mente, se hallaba enredada en un torbellino de recuerdos.
 
 "Starlight... Sunburst... Los niños... yo..." murmuró apenas, con una voz quebrada. Los rostros de sus amigos y alumnos revoloteaban en su mente como fantasmas que no podía ahuyentar.
 
@@ -422,7 +422,7 @@ Royalinda, complacida, sabía que había logrado lo que buscaba.
 
 Trixie no cambió la expresión en su rostro, sus ojos seguían fijos en Royalinda, observando cómo se levantaba de su asiento, ya sin la sonrisa burlona de antes. La luz del cuerno de Sunburst comenzó a brillar intensamente mientras preparaba un nuevo hechizo.
 
-"Tengo muchos planes para el futuro de este reino... o lo que quede de él. Y tú no tendrás lugar en ese futuro, ni en el mío, ni en el de nadie," continuó Royalinda, su voz grave y cargada de desprecio. "Considera esto un regalo especial de mi parte... Trixie."
+"Tengo muchos planes para el futuro de este reino... o lo que quede de él. Y tú no tendrás lugar en ese futuro, ni en el mío, ni en el de nadie," continuó Royalinda, su voz grave y cargada de desprecio. "Considera esto un regalo especial de mi parte..."
 
 La luz en el cuerno de Sunburst se intensificó, cegadora en su brillantez. Pero Trixie no apartó la mirada.
 
