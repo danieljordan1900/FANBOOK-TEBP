@@ -390,7 +390,7 @@ Era la de un gran elefante...
 
 Trixie, esforzándose por no derrumbarse, respiraba con dificultad, sintiendo el sudor frío recorrer su cuerpo. Sus ojos, enrojecidos por la presión, se fijaron en el cielo sobre ella.
 
-Un vasto espacio cósmico se movía rápidamente en el firmamento, rodeado por el ojo del huracán de tinieblas. Estrellas, mundos, constelaciones... todo desfilaba ante sus ojos en una carrera tan hermosa como inquietante.
+Un vasto espacio cósmico se movía rápidamente en el firmamento nocturno, rodeado por el ojo del huracán de tinieblas. Estrellas, mundos, constelaciones... todo desfilaba ante sus ojos en una carrera tan hermosa como inquietante.
 
 Mareada, apenas logrando mantenerse en pie, Trixie volvió su mirada hacia Royalinda.
 
@@ -404,21 +404,21 @@ Trixie, en un estado casi catatónico, fijó la vista en el vacío de la habitac
 
 Quiso llorar, pero sus ojos, secos y agotados, ya no tenían lágrimas para derramar.
 
-Con un sabor agrio en la boca y un nudo formándose en su garganta, Trixie, con un movimiento desesperado, lanzó la taza de té sobre la mesa, rompiendo el silencio. Las mantícoras doradas que decoraban la sala se agitaron, mientras Royalinda afilaba su mirada.
+Con un sabor agrio en la boca y un nudo formándose en su garganta, Trixie, con un movimiento desesperado presa de la agonia interna que la consumia, lanzó la taza de té sobre la mesa, rompiendo el silencio. Las mantícoras doradas que sus costados se agitaron, al otro lado de la mesa Royalinda afilo su mirada.
 
-"¿Qué quieres de mí?" preguntó Trixie, con un destello de indignación que se apagaba casi tan rápido como surgía. Su voz, debilitada por el agotamiento, apenas contenía una amenaza.
+"¡¿Qué quieres de mí?!" erupciono en voz alta, habia ira en sus palabras pero esta se ahogaba en un mar de angustia. Su voz, debilitada por el agotamiento y pena, apenas contenía una amenaza.
 
-"¿Qué quiero de ti? ¿A qué te refieres?" respondió Royalinda, fingiendo ingenuidad con una leve sonrisa en los labios.
+"¿Qué quiero de ti? ¿A qué te refieres?" respondió Royalinda, fingiendo ingenuidad a la pregunta de Trixie.
 
-"Dijiste que querías acabar conmigo personalmente. ¿Por qué no lo has hecho aún?" continuó Trixie, su voz apenas un susurro.
+"Dijiste que querías acabar conmigo personalmente. ¿Por qué no lo has hecho aún?"
 
-Royalinda hizo una pausa, disfrutando del momento. "Esa es una pregunta estúpida a estas alturas. Hazte una mejor. ¿Qué tanto crees que te odio?"
+Royalinda hizo una pausa, tomando una sobreactuada postura de reflexion. Despues de una pausa y asentir consigo misma tal como haria una niña en un juego. Finalmente respondio. "Esa es una pregunta estúpida a estas alturas. Hazte una mejor. ¿Qué tanto crees que te odio?"
 
-Trixie, temblando pero sin apartar la mirada de Royalinda, apretaba los dientes con furia. Tenía la mirada desafiante de un animal acorralado, desnudo y vulnerable, frente a un depredador implacable.
+Trixie, temblaba y apretaba los dientes con furia. Pero con toda su atencion fija en Royalinda. Tenía la mirada desafiante de un animal acorralado, desnudo y vulnerable, frente a un depredador implacable.
 
 Royalinda, complacida, sabía que había logrado lo que buscaba.
 
-"Ya no te queda nada," afirmó con frialdad. "Lo veo en tus ojos. Antes pensé que tal vez mostrarte el exterior no sería suficiente, que intentarías algo inútil en mi contra. Pero ahora sé que no eres tan especial. Ya no hay nada más que puedas hacer. Esto se acabó... y estoy satisfecha."
+"Ya no te queda nada," afirmó con frialdad. "Lo veo en tus ojos. Antes pensé que tal vez mostrarte el exterior no sería suficiente, que intentarías algo inútil en mi contra. Pero ahora sé que no eres tan dura. Ya no hay nada más que puedas hacer. Esto se acabó... y estoy satisfecha."
 
 Trixie no cambió la expresión en su rostro, sus ojos seguían fijos en Royalinda, observando cómo se levantaba de su asiento, ya sin la sonrisa burlona de antes. La luz del cuerno de Sunburst comenzó a brillar intensamente mientras preparaba un nuevo hechizo.
 
