@@ -28,7 +28,7 @@ Pero la realidad no podía ser negada. Estruendos resonaban como rugidos de best
 
 Nadie en Ponyville sabía lo que estaba ocurriendo dentro del otrora castillo de la amistad.
 
-Y si lo supieran, no estarían allí, observando con desconcierto. Más bien, habrían huido, escondiéndose aterrados, anticipando el horror que estaba a punto de desatarse...
+Y si lo supieran, no estarían allí, observando con desconcierto. Más bien, habrían huido, escondiéndose aterrados, anticipando el catastrofe que estaba a punto de desatarse...
 
 ---
 
@@ -36,23 +36,29 @@ Dentro del castillo, el destino se abría paso en medio del caos...
 
 "¡CONSEJERA TRIXIE!" gritó desesperada Ocellus desde el otro extremo del puente.
 
-La escena que los Young-Six presenciaban era aterradora. Un monstruo de proporciones ciclópeas había surgido de las profundidades del gran atrio. Era una masa de poder tan abrumadora que nunca habían sentido algo parecido en sus vidas. Esta criatura, cuya mera presencia irradiaba una barrera mágica que empujaba todo a su paso, se alzaba desde el fondo como una serpiente negra y corrupta, envuelta en llamas esmeraldas. Ante ellos, poderosa, la bestia se erguía, enfrentándose a una insospechadamente valiente unicornio.
+La escena que los Young-Six presenciaban era aterradora. Un monstruo de proporciones ciclópeas había surgido de las profundidades del gran atrio. Era una masa de poder tan abrumadora que nunca habían sentido algo parecido en sus vidas. Esta criatura, cuya mera presencia irradiaba una barrera mágica que empujaba todo a su paso, se alzaba desde el fondo como una serpiente negra y corrupta, envuelta en llamas esmeraldas. 
 
-Trixie Lulamoon se plantaba frente a la oscuridad, con un débil destello de magia en su cuerno, firme como un héroe salido de una leyenda épica.
+Y aun asi, ante esta poderosa bestia, en medio de un debil puente de cristal que se derrumbaba, una insospechada y valiente unicornio hacia frente a la amenaza.
 
-Sin embargo, esa imagen heroica duró solo un fugaz parpadeo. Antes de que cualquiera de los Young-Six pudiera reaccionar, la luz del cuerno de Trixie se apagó, y quedó atrapada por la vil magia del monstruo que intentaba detener. Con el mismo desdén que un poni mostraría al aplastar algo molesto bajo su herradura, la bestia levantó un tentáculo en el aire con Trixie en su extremo, observándola como si fuese un simple objeto de estudio.
+Trixie Lulamoon le plantaba cara a la oscuridad, con un débil destello de magia en su cuerno, firme como un héroe salido de una leyenda épica.
+
+Sin embargo, esa imagen heroica duró solo un fugaz parpadeo. Antes de que cualquiera de los Young-Six pudiera decir algo mas, la luz del cuerno de Trixie se apagó, y quedó atrapada por la vil magia del monstruo que intentaba detener. Con el mismo desdén que un poni mostraría al aplastar algo molesto bajo su herradura, la bestia levantó un tentáculo en el aire con Trixie en su extremo, observándola como si fuese un simple objeto de estudio.
 
 "¡La va a matar!" exclamó Sandbar, incapaz de contener las emociones que lo invadían. El resto de sus compañeros, también dominados por la intensidad del momento, solo podían observar el inevitable desenlace que se desarrollaba ante sus ojos.
 
 Pero no eran los únicos que observaban.
 
-En otro lugar, oculto en las sombras del castillo, una presencia desconocida, ignorada por todos, también contemplaba la escena, fascinada por el momento.
+En otro lugar, oculto en las sombras del castillo, una presencia desconocida, ignorada por todos, también contemplaba la escena desde una habitacion lejana. 
+
+Fascinada por el momento en vivo que le mostraba su magia, la presencia desconocida contenia el aliento.
 
 El destino de Trixie parecía estar sellado. Un final espantoso y cruel bajo las sombrías garras de aquel ser nacido de las sombras.
 
 ¿O tal vez no?
 
-Entonces, después de lo que pareció una eternidad en la mente de quienes observaban, el monstruo hizo finalmente su movimiento.
+Después de lo que pareció una eternidad en la mente de quienes observaban, el monstruo hizo finalmente su movimiento.
+
+La presencia desconocida no podia creer lo que observaban.
 
 "No... imposible..."
 
@@ -60,7 +66,7 @@ Era inaudito, totalmente contrario a lo que el sentido común dictaría como un 
 
 "Imposible, imposible, imposible..."
 
-Incrédula ante lo que acababa de observar, la mente de la presencia oculta se volvió un torbellino de confusión. ¿Por qué el monstruo no había eliminado a Trixie? ¿Cual era entonces su objetivo? ¡¿De dónde había salido para empezar?! Ella había orquestado la persecución mortal que habían sufrido Trixie y los Young-Six durante toda la tarde. Había invertido tanto tiempo y recursos en tratar de eliminarlos, y había estado tan cerca de lograrlo. Pero ahora...
+Incrédula, la mente de la presencia desconocida se volvió un torbellino de confusión. ¿Por qué el monstruo no había eliminado a Trixie? ¿Cual era entonces su objetivo? ¡¿De dónde había salido para empezar?! Ella había orquestado la persecución mortal que habían sufrido Trixie y los Young-Six durante toda la tarde. Había invertido tanto tiempo y recursos en tratar de eliminarlos, y había estado tan cerca de lograrlo. Pero ahora...
 
 Ahora...
 
@@ -148,6 +154,12 @@ El capitán de las armaduras había desaparecido de la faz de este mundo.
 
 ---
 
+En una habitacion lejana. Tras recibir el ultimo mensaje del capitán de las armaduras, las presencia desconocida, Royalinda, finalmente se dejo caer en su asiento, extasiada de por fin haber podido capturar a su presa.
+
+---
+
+Mas tarde en esa misma habitacion...
+
 "... y luego, mis otros súbditos te encontraron y te trajeron ante mí. ¿Eso responde a tu pregunta?" termino de decir Royalinda, controlando el cuerpo de Sunburst, acomodada en un elegante sillón.
 
 "En absoluto, querida. Deberías practicar más tus presentaciones. Mostrarse narrando un escenario donde tu participación apenas se deduce le resta mucho a tu importancia como protagonista." Trixie respondió mientras tomaba una taza de té, acompañada de unos panecillos.
@@ -170,7 +182,7 @@ Tras echar un poco de azúcar en su bebida y revolverla con una cucharita, ambas
 
 En la biblioteca privada de Starlight Glimmer, dentro del castillo de Twilight, custodiada por dos mantícoras doradas a sus flancos, Trixie Lulamoon probó el té tibio que acababa de prepararse.
 
-"Esto es mi culpa..." no pudo evitar repetirse angustiada en sus adentros mientras tomaba de la taza. A pesar de su fingida postura confiada los temblores en sus cascos deletaban su verdadero estado de animo. Royalinda, su captora, al otro lado de la gran mesa del mapa, hojeaba concentrada unos pergaminos, en un aparente desinterés por las acciones de su prisionera.
+"Esto es mi culpa..." no pudo evitar repetirse angustiada en sus adentros mientras tomaba de la taza. A pesar de su fingida postura confiada los temblores en sus cascos deletaban su verdadero estado de animo. Su captora, al otro lado de la gran mesa del mapa, hojeaba concentrada unos pergaminos, en un aparente desinterés por las acciones de su prisionera.
 
 Por supuesto, esto último realmente no era así.
 
@@ -180,29 +192,29 @@ Apenas visible entre el desordenado cabello de Sunburst, una diminuta criatura, 
 
 "Ugh..." Trixie sintiendo náuseas al mantener la mirada sobre el parásito que se agitaba en el cuello de su amigo. Incapaz de soportarlo más, apartó la vista.
 
-Esta era Royalinda, la última orquídea-pulpo, completamente alerta a cada movimiento de Trixie.
+Esta era Royalinda, la última orquídea-pulpo, quien en guardia, observaba cada movimiento de Trixie.
 
 "¿Sucede algo?" preguntó Royalinda sin levantar la mirada de los documentos.
 
-"No, no es nada..." respondió Trixie, manteniendo la vista baja, aparentando calma.
+"No, no es nada..." respondió Trixie, manteniendo la vista baja, aparentando estar relajada.
 
 "¿De verdad? Si aún estás agotada, puedo restaurar tu salud aún más. Solo pídemelo."
 
-Era verdad. Poco después de que Trixie despertara desorientada en el estudio de Starlight, Royalinda curó sus heridas de inmediato y la ayudó a recuperar su lucidez.
+Era verdad. Poco después de que Trixie despertara desorientada en el estudio de Starlight, Royalinda la ayudó curando sus heridas de inmediato y dandole tiempo para recuperar su lucidez.
 
-En otras circunstancias, habría agradecido fervientemente aquel gesto, pero dado quién era su captora, eso le resultaba imposible. Le costó aceptarlo. De hecho, al principio no lo acepto, pensó que todo era un sueño o que aun estaba soñando, o que quiza, Sunburst y los demás le estaban jugando una cruel broma como castigo. Sin embargo, tras ser electrificada por Royalinda un par de veces, poco a poco empezó a calmarse y a aceptar la realidad en la que se encontraba.
+En otras circunstancias, habría agradecido fervientemente aquel gesto, pero dado quién era su captora, eso le resultaba imposible. Le costó mucho aceptarlo. De hecho, al principio no lo acepto, pensó que todo era un sueño o que aun estaba soñando, o que quiza, Sunburst y los demás le estaban jugando una cruel broma como castigo. Sin embargo, tras ser electrificada por Royalinda un par de veces, poco a poco empezó a calmarse y a aceptar la realidad en la que se encontraba.
 
 No había muerto. Y ahora estaba en las garras del último enemigo que esperaba encontrarse ese día.
 
-Trixie bebía con fuerza de su té, el sonido resonando en la habitación. A pesar de la serenidad que transmitían los decorados, el ambiente era inquietante, haciendo aún más surrealista la situación que se desarrollaba.
+Trixie bebía con fuerza de su té, el sonido resonando en la habitación. A pesar de la serenidad que transmitían los decorados en las paredes, el ambiente era inquietante, haciendo aún más surrealista la situación que se desarrollaba.
 
-"Esto es una pesadilla..." no pudo evitar pensar la unicornio, casi echando de menos estar de vuelta en el gran atrio del castillo, enfrentándose al monstruo caracol de antes.
+"¿Que hago ahora?" la unicornio, se encontraba totalmente perdida, casi echaba de menos estar de vuelta en el gran atrio del castillo, enfrentándose al monstruo caracol de antes.
 
 En medio de su inquietud, mirando de reojo, notó que Royalinda (en el cuerpo de Sunburst) había dejado de leer y ahora la observaba, como si esperara algo.
 
-"Descuida, así está bien..." respondió Trixie torpemente sin volverse, intentando cerrar la conversación con una falsa sonrisa, tomando otro sorbo de té.
+"Heee ... nada, así está bien..." respondió Trixie torpemente sin volverse, intentando cerrar la conversación anterior con una falsa sonrisa, tomando otro sorbo de té.
 
-"Ahh... Está bien, pero recuerda que estoy aquí para servirte... madre", terminó diciendo Royalinda, volviendo su atención a los documentos, pero remarcando la última palabra.
+"Ahh... entiendo, pero recuerda que estoy aquí para servirte... madre", terminó diciendo Royalinda, volviendo su atención a los documentos, pero alzando la voz en la última palabra.
 
 Madre.
 
