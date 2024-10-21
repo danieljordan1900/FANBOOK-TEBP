@@ -697,7 +697,7 @@ Allí, donde debería brillar la luz de la gran ciudad de Canterlot, capital de 
 
 Desde el corazón de esa sombra, el viento soplaba con violencia, el firmamento giraba, revelando estrellas desconocidas y mundos jamás vistos. El suelo comenzaba a teñirse de oscuridad.
 
-Géiseres de agua comenzaron a estallar alrededor del castillo, cuatro estrellas brillantes se aproximaban con rapidez hacia ellos.
+Géiseres de agua estallaron alrededor del castillo, cuatro estrellas brillantes se aproximaban con rapidez hacia ellos.
 
 La 'medianoche' se elevaba en lo alto.
 
@@ -711,7 +711,7 @@ No obstante, esa sería… otra historia.
 
 //	---------------------
 
-Al atravesar la puerta pudo ver que todo se habia roto y sin embargo ... aun no habia acabado.
+Al atravesar la ultima puerta pudo ver que todo se hallaba roto y sin embargo ... aun no habia acabado.
 
 //	---------------------
 
