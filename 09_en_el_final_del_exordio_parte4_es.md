@@ -402,7 +402,7 @@ No muy lejos del caparazón destrozado de YRAG, una enorme estatua blanca yacía
 
 Era la de un gran elefante blanco ...
 
-"Ocellus..." no pudo contener el quejido que escapó de su boca. El mundo daba vueltas a su alrededor, el aire se le hacía escaso. Su cerebro se deuvo. No quería pensar más... no quería saber más... porque si lo hacia ...
+"Ocellus, Gallus ..." no pudo contener el quejido que escapó de su boca. El mundo daba vueltas a su alrededor, el aire se le hacía escaso. Su cerebro se deuvo. No quería pensar más... no quería saber más... porque si lo hacia ...
 
 "¡Jajajaja!" Royalinda estalló en carcajadas. "Las cosas no resultan como uno espera. Lo entiendo, lo entiendo, suele pasar,  jajaja  'lo importante es seguir adelante y aprender de tus errores'. ¿No es eso algo que enseñan en tu Escuela para Tontos? Jaja Cualquiera puede aprender eso. Cualquiera menos tú, por supuesto."
 
@@ -420,43 +420,43 @@ Trixie, en un estado casi catatónico, fijó la vista en el espacio vacío frent
 
 Toda la persecucion anterio..., la pelea en el puente ... todo ... ¿Habia sido inutil? ¿Cuánto más podría fallar ese día?
 
-Quiso llorar, pero sus ojos, secos y agotados, le ardian, ya no tenían lágrimas para derramar.
+Quiso llorar, pero sus ojos, secos y agotados, le ardían. Ya no tenía lágrimas para derramar.
 
-Con un sabor agrio en la boca y un nudo formándose en su garganta, Trixie, con un movimiento desesperado presa de la agonia interna que la consumia, lanzó la taza de té sobre la mesa, rompiendo el silencio. Las mantícoras doradas que sus costados se agitaron, al otro lado de la mesa Royalinda afilo su mirada.
+Con un sabor agrio en la boca y un nudo creciendo en su garganta, Trixie, en un movimiento desesperado, presa de la agonía interna que la consumía, lanzó la taza de té sobre la mesa, rompiendo el silencio. Las mantícoras doradas a sus costados se agitaron levemente, mientras Royalinda, al otro lado de la mesa, afilaba su mirada.
 
-"¡¿Qué quieres de mí?!" erupciono en voz alta, habia ira en sus palabras pero esta se ahogaba en un mar de desesperacion. Su voz, debilitada por el agotamiento y pena, apenas contenía una amenaza.
+"¡¿Qué quieres de mí?!" estalló Trixie, con ira en su voz, aunque ahogada en un mar de desesperación. Su tono, debilitado por el agotamiento y el dolor, apenas contenía una amenaza.
 
-"¿Qué quiero de ti? ¿A qué te refieres?" respondió Royalinda, fingiendo ingenuidad a la pregunta de Trixie. Le dio un sorbo a su taza de te.
+"¿Qué quiero de ti? ¿A qué te refieres?" respondió Royalinda, fingiendo ingenuidad ante la pregunta de Trixie, y le dio un sorbo a su taza de té.
 
 "Dijiste que querías acabar conmigo personalmente. ¿Por qué no lo has hecho aún?"
 
-Royalinda hizo una pausa, tomando una sobreactuada postura de reflexion. Despues de una pausa y asentir consigo misma tal como haria una niña en un juego. Finalmente respondio. "Esa es una pregunta estúpida a estas alturas. Hazte una mejor. ¿Qué tanto crees que te odio?"
+Royalinda hizo una pausa, adoptando una postura exageradamente reflexiva. Tras un momento, y asintiendo con la cabeza como una niña en un juego, finalmente respondió. "Esa es una pregunta estúpida a estas alturas. Hazte una mejor. ¿Qué tanto crees que te odio?"
 
-Trixie guardo silencio, temblaba y apretaba los dientes con furia. Toda su atencion fija en Royalinda. Tenía la mirada desafiante de un animal acorralado, desnudo y vulnerable, frente a un depredador implacable.
+Trixie guardó silencio, temblando mientras apretaba los dientes con furia. Toda su atención estaba fija en Royalinda. Tenía la mirada desafiante de un animal acorralado, desnudo y vulnerable, frente a un depredador implacable.
 
-Royalinda, entonces respondio a esa mirada. Ambas se observaron mutuamente, estudiandose, adivinando las intenciones del otro...
+Royalinda, respondiendo a esa mirada, la sostuvo. Ambas se observaron, estudiándose, intentando adivinar las intenciones de la otra.
 
-Tras un largo tiempo, que parecio detenerse, finalmente Royalinda aparto la mirada, complacida. 
+Después de lo que pareció una eternidad, Royalinda apartó la mirada, complacida.
 
 Había logrado lo que buscaba.
 
-"Ya no te queda nada," afirmó con frialdad. "Lo veo en tus ojos. Antes pensé que tal vez mostrarte el exterior no sería suficiente para quebrarte, que intentarías algo inútil en mi contra. Pero ahora sé que no eres tan dura. Ya no hay nada más que puedas hacer. Ni nadie vendra en tu ayuda. Esto se acabó... y estoy satisfecha."
+"Ya no te queda nada," afirmó fríamente. "Lo veo en tus ojos. Antes pensé que tal vez mostrarte el exterior no sería suficiente para quebrarte, que intentarías algo inútil en mi contra. Pero ahora sé que no eres tan dura. Ya no hay nada más que puedas hacer. Nadie vendrá en tu ayuda. Esto se acabó... y estoy satisfecha."
 
-Trixie no cambió la expresión en su rostro, sus ojos seguían fijos en Royalinda, observando cómo se levantaba de su asiento, ya sin la sonrisa burlona de antes. La luz del cuerno de Sunburst comenzó a brillar intensamente mientras preparaba un nuevo hechizo.
+Trixie no cambió la expresión de su rostro. Sus ojos permanecían fijos en Royalinda, observando cómo esta se levantaba de su asiento, ya sin la sonrisa burlona de antes. La luz del cuerno de Sunburst comenzó a brillar intensamente mientras preparaba un nuevo hechizo.
 
-"Ya he gastado mucho tiempo contigo, debo prepararme para mi ascenso en este reino... o lo que quede de él. Mi futuro sera grandioso. Y tú no tendrás lugar en ese futuro, ni en el de nadie," continuó Royalinda, su voz grave y cargada de desprecio. "Considera esto un regalo especial de mi parte..."
+"Ya he gastado demasiado tiempo contigo. Debo prepararme para mi ascenso en este reino... o lo que quede de él. Mi futuro será grandioso. Y tú no tendrás lugar en ese futuro, ni en el de nadie," continuó Royalinda, su voz grave y cargada de desprecio. "Considera esto un regalo especial de mi parte..."
 
-La luz en el cuerno de Sunburst, que era controlado por Royalinda, se intensificó. Una luz cegadora en su brillantez inundo la habitación.  Trixie no apartó la mirada.
+La luz en el cuerno de Sunburst, bajo el control de Royalinda, se intensificó. Una luz cegadora inundó la habitación, pero Trixie no apartó la mirada.
 
-"Solo para ti, esta magia antigua y poderosa: " proclamó Royalinda apuntando su cuerno contra Trixie "'¡La bendición de los Señores de la Oscuridad!'" 
+"Solo para ti, esta magia antigua y poderosa," proclamó Royalinda, apuntando su cuerno hacia Trixie. "'¡La bendición de los Señores de la Oscuridad!'"
 
-El haz de luz magica salio disparado.
+El haz de luz mágica salió disparado.
 
-Trixie, quien hasta entonces había permanecido inmóvil y desafiante, suavizó la expresión de su rostro en el último momento. Un semblante de liberacion reemplazo su rostro mientras la luz magica la envolvia. 
+Trixie, quien hasta entonces había permanecido inmóvil y desafiante, suavizó la expresión de su rostro en el último momento. Un semblante de liberación reemplazó su gesto mientras la luz mágica la envolvía.
 
-Dejó de resistirse. 
+Dejó de resistirse.
 
-"Starlight..." gimio una última vez antes de ser arrastrada por la corriente mágica.
+"Starlight..." gimió una última vez antes de ser arrastrada por la corriente mágica.
 
 ---
 
