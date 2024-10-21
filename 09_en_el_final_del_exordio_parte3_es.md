@@ -695,7 +695,7 @@ Desafiante, Ocellus se mantuvo firme, observando en dirección a las montañas, 
 
 Allí, donde debería brillar la luz de la gran ciudad de Canterlot, capital de Equestria, se alzaba una inmensa columna de sombras y distorsión, esparciéndose en el cielo como las garras de un monstruo titánico.
 
-Desde el corazón de esa sombra, el viento soplaba con violencia, el firmamento dentro de esa sombra giraba, revelando estrellas desconocidas y mundos jamás vistos. El suelo comenzaba a teñirse de oscuridad.
+Desde el corazón de esa sombra, el viento soplaba con violencia, el firmamento giraba, revelando estrellas desconocidas y mundos jamás vistos. El suelo comenzaba a teñirse de oscuridad.
 
 Géiseres de agua comenzaron a estallar alrededor del castillo, cuatro estrellas brillantes se aproximaban con rapidez hacia ellos.
 
@@ -711,6 +711,10 @@ No obstante, esa sería… otra historia.
 
 //	---------------------
 
+Al atravesar la puerta pudo ver que todo se habia roto y sin embargo ... aun no habia acabado.
+
+//	---------------------
+
 En otro lugar del castillo...
 
 No había muerto. Trixie estaba segura de eso.
@@ -721,11 +725,11 @@ Sin embargo, no perdió la conciencia. Tampoco dejó de sentir.
 
 Todo fue comprimido. Cayó envuelta por una fuerza desconocida, sofocada y golpeada una y otra vez.
 
-Pero… seguía consciente.
+El tiempo pasaba. Y... aun seguía consciente.
 
-¿Realmente no había muerto?
+¿Como podia seguir conciente apesar de su agotamiento? ¿Realmente no había muerto? ¿Quien la estaba empujando? ¿Hacia donde?
 
-Ya no tenía fuerzas para protestar.
+Intento mover su cuerpo varias veces, pero fue en vano. Ya no tenía fuerzas para protestar.
 
 Sin voluntad, se dejó llevar por aquella fuerza.
 
