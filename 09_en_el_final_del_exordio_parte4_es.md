@@ -260,17 +260,21 @@ En el pasado, ella había insistido a Starlight en usar algún tipo de magia pod
 
 Si su amiga Starlight, una magnífica hechicera de alto nivel, no era capaz de realizar semejante proeza, ¿cómo lo había logrado Royalinda?
 
-"¿Cómo es que las creaste?" preguntó Trixie, frunciendo el ceño.
+"¿Cómo es que los creaste?" preguntó Trixie, frunciendo el ceño.
 
-"Fu fu fu..." rió Royalinda con un evidente aire de superioridad. "Te sorprendería lo mucho que puedes lograr si tienes a tu disposición una mente tan brillante como esta." termino de decir dandose unos golpesitos en la frente con una de sus pezuñas.
+"Fu fu fu..." rió Royalinda con un evidente aire de superioridad. "Te sorprendería lo mucho que puedes lograr si tienes a tu disposición una mente tan brillante como esta." Terminó de hablar, dándose unos golpecitos en la frente con una de sus pezuñas.
 
 "Eso es..." añadió, aún confundida, Trixie. Royalinda respondió con una sonrisa aún más grande.
 
 "Tu amigo tiene en su cabeza una vasta enciclopedia sobre magia, hechizos, ritos y muchos más conocimientos mágicos de los que jamás habría soñado obtener. Todo ordenado y listo para usar de inmediato. ¡Ah, es magnífico!" El tono de voz de Royalinda revelaba el sincero éxtasis que recorría su cuerpo en ese momento. "Puedo decir con total seguridad que su conocimiento es incluso mayor que el de tu querida Starlight. Casi siento lástima por alguien así, incapaz de usar nada de todo ese saber. Fu fu fu. Pero no hay que preocuparse, yo sí le daré un buen uso."
 
-Trixie por fin lo entendio. Royalinda habia usado el conocimiento de Sunburst para crear aquel ejercito implacable de armaduras. Aunque Sunburst era un unicornio que tenia muy poco talento para la magia, su basto conocimiento de esta misma combinado con el talento magico de Royalinda (quien carecia de las limitaciones de su anfitrio), habian sido los factores que habian permitido el surgimiento de tan tragico escenario. 
+Trixie por fin lo entendió. Royalinda había utilizado el vasto conocimiento de Sunburst para crear aquel implacable ejército de armaduras. Aunque Sunburst era un unicornio con muy poco talento práctico para la magia, su amplio conocimiento, combinado con el talento mágico de Royalinda —quien no tenía las limitaciones de su anfitrión—, había sido el factor clave que desencadenó tan trágico escenario.
 
-"Sunburst ..."mumuro Trixie angustiada. Notando los sentimientos de su prisionera, Royalinda provocativamente comenzo a maltratar uno de sus cascos del cuerpo de Sunburst con una pluma, sin mostrar el menor indicio de dolor.
+Claro, había otro factor más: la energía necesaria para crear tantas armaduras. Para ello, Royalinda utilizó la magia del castillo, que, para su suerte, ya se encontraba cautivo y listo para ser explotado. Esto último, sin embargo, no lo mencionó.
+
+"Sunburst..." murmuró Trixie angustiada.
+
+Notando los sentimientos de su prisionera, Royalinda comenzó provocativamente a maltratar uno de los cascos del cuerpo de Sunburst con una pluma, sin mostrar el menor indicio de dolor.
 
 La ira por fin se reflejó en el rostro de Trixie al ver cómo Royalinda usaba el cuerpo de su amigo como si fuera un juguete. Pero antes que Trixie dijera algo, Royalinda hablo: "Oh, no pongas esa cara. No pienso hacerle nada a este magnífico recipiente. Voy a cuidar bien de él, pero no puedo decir lo mismo de tus otros 'amigos'."
 
