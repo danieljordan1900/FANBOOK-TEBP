@@ -154,7 +154,7 @@ El capitán de las armaduras había desaparecido de la faz de este mundo.
 
 ---
 
-En una habitacion lejana. Tras recibir el ultimo mensaje del capitán de las armaduras, las presencia desconocida, Royalinda, finalmente se dejo caer en su asiento, extasiada de por fin haber podido capturar a su presa.
+En una habitacion lejana. Tras recibir el ultimo mensaje del capitán de las armaduras, las presencia desconocida, Royalinda, finalmente se dejo caer en su asiento, extasiada de por fin haber podido capturar a su tan apremiante presa.
 
 ---
 
@@ -284,9 +284,9 @@ El rostro de Trixie cambió, como al de un poni sorprendido en medio de la noche
 
 "Uhmmm" Royalinda, aparentemente distraída, miró el techo de la habitación.
 
-"¡Responde! Ughh..." Antes de que Trixie pudiera continuar hablando, las cadenas que sujetaban sus cascos la jalaron desde abajo, haciéndola inclinarse hacia la mesa y golpeando su cara contra esta.
+"¡Responde! Ughh..." Antes de que Trixie pudiera continuar hablando, las cadenas que sujetaban sus cascos la jalaron, haciéndola inclinarse hacia abajo y golpeando su cara contra la mesa.
 
-"No tienes por qué insistir con preguntas como esa." respondió Royalinda con una postura soberbia volviendo su mirada a Trixie. "¿Aún no te queda clara la posición en la que te encuentras?"
+"No tienes por qué insistir con preguntas como esa." respondió Royalinda con una postura dominante volviendo su mirada a Trixie. "¿Aún no te queda clara la posición en la que te encuentras?"
 
 Trixie, con su rostro aún pegado contra el frío cristal de la mesa, respiraba con intensidad, ventilando su frustración e ira. La escena actual no era una novedad en la habitacion; ya se había repetido varias veces antes, y por los mismos motivos. A pesar de la aparente conversación natural entre ambas, Royalinda no había contestado ninguna de las preguntas de Trixie sobre el paradero o estado de sus amigos. Tampoco había respondido directamente sobre su verdadera identidad o sus intenciones. Ni siquiera le había dicho su nombre. Hasta ahora, Trixie solo había sido una espectadora pasiva que recibia respuestas indirectas o que no respondian nada. Y cada vez que insistia era torturada con electricidad o el apretar de las cadenas.
 
@@ -298,11 +298,11 @@ Esa chispa en su mirada era precisamente lo que Royalinda había estado esperand
 
 Las cejas de Trixie se fruncieron aún más. Escupió con desprecio: "¡Ya basta! ¡No eres mi hija!"
 
-"Jamás dije que lo fuera. Es solo una forma muy... amable de referirme a ti. Llamarte por tu verdadero nombre o ese otro ridículo título que usas me resulta... repulsivo."
+"Jamás dije que lo fuera. Esta es solo una forma muy amable de mi parte para referirme a ti. Llamarte por tu verdadero nombre o ese otro ridículo título que tanto usas me resulta... repulsivo."
 
-La fuerza que jalaba las cadenas de Trixie desapareció, pero el dolor en sus patas y cuello seguía ahí.
+La fuerza que jalaba las cadenas de Trixie desapareció, pero el dolor en sus patas y cuello se mantuvieron.
 
-Adolorida, Trixie logró incorporarse en su asiento, aunque su mirada permanecía desafiante.
+Adolorida, Trixie logró incorporarse en su asiento, su mirada permanecía desafiante.
 
 "¿Me dirás qué hiciste con mis amigos o no?" insistió Trixie.
 
@@ -310,15 +310,15 @@ Royalinda suspiró, visiblemente cansada.
 
 "¿Acaso tus amigos son lo único en lo que puedes pensar? Deberías preocuparte más por ti misma, como siempre lo haces."
 
-"Ellos son más que amigos para mí. Son como mi familia. Un monstruo como tú no lo entendería."
+"Ellos son más que amigos para mí. ¡Son como mi familia!" Trixie tomo una postura mas comoda  " ... un monstruo como tú no lo entendería."
 
 Los ojos de Royalinda centellearon por un momento, sintiendo la provocación de Trixie, pero no se alteró. En cambio, una expresión extraña apareció en su rostro.
 
-"Son como una familia para ti... Ya veo. Nosotros también podemos entender eso, ¿sabes?" respondió Royalinda con un tono de voz muy distinto al que había mostrado hasta entonces.
+"Asi que son como una familia para ti... Ya veo. Nosotros también podemos entender eso, ¿sabes?" respondió Royalinda con un tono de voz muy distinto al que había mostrado hasta entonces.
 
 "¿Nosotros?" repitió Trixie, sintiendo un cambio en el aire.
 
-"Sí, nosotros... éramos muchos. Mis hermanos y hermanas," comenzó a decir Royalinda, reclinándose en su asiento. Su voz bajaba por momentos, y su mirada parecía perdida en algún rincón vacío de la habitación, como si contemplara otro lugar, otro momento. "Todos confiaban en ti, esperaban que volvieras algún día, que nos trajeras alimento, como siempre lo hacías. Todos eran tan inocentes, tan pacientes... Ja, yo también lo fui."
+"Sí, nosotros... éramos muchos. Mis hermanos y hermanas," comenzó a decir Royalinda, reclinándose en su asiento. Su voz habia bajado y ahora se escuchaba por momentos, su mirada parecía perdida en algún rincón vacío de la habitación, como si contemplara otro lugar, otro momento. "Todos confiaban en ti, esperaban que volvieras algún día, que nos trajeras alimento, como siempre lo hacías. Todos eran tan inocentes, tan pacientes... Ja, yo también lo fui."
 
 El rostro de Royalinda pareció hundirse en sombras. Aunque realmente era el cuerpo de Sunburst controlado por la orquídea-pulpo, en ese momento, los ojos de Trixie captaban algo más profundo.
 
@@ -330,15 +330,17 @@ La culpa que antes había sentido volvió a inundarla.
 
 De pronto, Royalinda estalló en risas. La escena anterior, que había destilado un aparente dolor interno, desapareció como si nunca hubiera ocurrido. Ahora, con una voz maligna, miraba directamente a Trixie. "No tienes por qué angustiarte por algo así. Era de esperarse que sucediera. Después de todo, somos monstruos, como bien dijiste. Habría pasado de una forma u otra."
 
-Trixie no respondió. La falsa seguridad en las palabras de Royalinda solo profundizaba su culpa. Recordaba sus estúpidos actos en la Escuela de la Amistad...
+Trixie no respondió. La falsa seguridad en las palabras de Royalinda solo profundizaba su culpa. Cabizbaja, recordaba sus estúpidos actos en la Escuela de la Amistad...
 
 "Abandonarnos en el bosque nos enseñó mucho sobre cómo sobrevivir. Fue difícil, pero aprendimos la lección y nos hicimos más fuertes. Puedo estar muy agradecida por eso..."
 
 "Lo siento..." intentó decir Trixie, pero de inmediato un agarre mágico la silenció. No fueron las cadenas ni un rayo eléctrico como antes, sino un golpe mágico violento, como una bofetada invisible, lo que la impactó.
 
-Al otro lado de la mesa, Royalinda continuaba su apasionado discurso sin prestarle atención, mientras Trixie jadeaba por el golpe.
+Al otro lado de la mesa, Royalinda continuaba hablando sin prestarle atención, mientras Trixie jadeaba por el golpe.
 
-"Mis otros hermanos no sobrevivieron. Eran débiles. Yo, en cambio, soy más fuerte y sé muy bien cuál es mi lugar en este mundo. Es un destino glorioso, que solo los más fuertes pueden alcanzar. ¡Y lo alcanzaré! Seré conocida en todas partes, mi nombre resonará en todas las lenguas, desde las raíces de la misma tierra hasta los confines del tercer cielo. Me alzaré imbatible y aplastaré a todos mis enemigos. No dejaré con vida a nadie que se me oponga. Mi poder será tan grande que ni los señores oscuros seran una amenaza para mi. ¡Yo, seré la nueva gobernante absoluta! ¡Nada podrá superarme! ¡Jajajaja!"
+El discurso que escuchaba era tan apasionado como retorcido.
+
+"Mis otros hermanos no sobrevivieron. Eran débiles. Yo, en cambio, soy más fuerte y sé muy bien cuál es mi lugar en este mundo. Es un destino glorioso, que solo los más fuertes pueden alcanzar. ¡Y lo alcanzaré! Seré conocida en todas partes, mi nombre resonará en todas las lenguas, desde las raíces de la misma tierra hasta los confines del tercer cielo. Me alzaré imbatible y aplastaré a todos mis enemigos. Mi poder será tan grande que ni los señores oscuros seran una amenaza para mi. ¡Yo! ¡Yo seré la nueva gobernante absoluta! ¡Nada podrá superarme! ¡Jajajaja!"
 
 Ante los delirios de quien, en otras circunstancias, habría podido ser como una hija, Trixie agachó la cabeza, desolada.
 
@@ -370,27 +372,27 @@ Entonces, como si fuera la imagen de una película, la luz blanca se desvaneció
 
 "Es fascinante..." murmuró Royalinda, con una mirada perversa, mientras también observaba a su alrededor.
 
-Era el mundo exterior. Más precisamente, el exterior del castillo que se reflejaba en todas direcciones. El hechizo de Royalinda había transformado las superficies de la habitación para mostrar una vista panorámica casi de 360 grados del exterior.
+Era el mundo exterior. Más precisamente, el exterior del castillo que se reflejaba en todas direcciones. El hechizo de Royalinda habia lanzado, había transformado las superficies de la habitación para mostrar una vista panorámica casi de 360 grados del exterior.
 
-Trixie entendió esto al reconocer los cimientos del castillo, distantes a una altura prodigiosa. Era como si estuviera sentada en el cielo mismo, aunque no sentía ninguna brisa a su alrededor.
+Trixie entendió esto al reconocer los cimientos del castillo debajo de ella, a una prodigiosa altura. Era como si estuviera sentada en el cielo mismo, en la cima de un rascacielos, aunque no sentía ninguna brisa a su alrededor.
 
-Sin embargo, en medio de aquella sorprendente magia óptica, eso fue lo único familiar que pudo reconocer.
+Sin embargo, en medio de aquella sorprendente magia óptica, eso fue lo menos que le sorprendio.
 
-Nubes negras como el abismo rotaban a su alrededor en un movimiento circular, como si estuvieran en el ojo de un huracán que desgarraba la realidad. Abajo, donde antes había una pradera verde con flores y árboles, ahora se extendía un océano turbulento, rojo como la sangre, con violentas olas que azotaban enormes rocas negras, redondeadas como meteoritos estrellados.
+Nubes negras como el abismo rotaban a su alrededor en un movimiento circular, como si estuvieran en el ojo de un huracán que desgarraba la realidad misma. Abajo, donde antes había habido una pradera verde con flores y árboles, ahora se extendía un océano turbulento, rojo como la sangre, donde violentas olas impactaban contra extrañas e enigmaticas islas. Mas que islas, aquellos peñones ciculares se asemejaban mas a meteoritos incrustrados contra el suelo.
 
-"Esto..." Trixie no encontraba palabras para expresar su conmoción. Apenas podía creer lo que veía. Una parte de su mente se negaba a aceptar que aquel paisaje infernal alguna vez había sido el lugar donde tantas veces paseó con sus amigos. ¡Había cruzado esas colinas esa misma mañana! ¡Esto debía ser una ilusión!
+"Esto..." Trixie no encontraba palabras para expresar su conmoción. Apenas podía creer lo que veía. ¿Era Ponyville? ¡No podia serlo! Aquel paisaje infernal de ninguna forma podia ser el mismo lugar donde tantas veces habia paseado con sus amigos. ¡Esa misma mañana, había cruzado esas colinas! ¡Esto debía ser un truco!
 
 "¡No caeré en tus ilusiones!" gritó Trixie, en un estado de negación.
 
-"¿Oh? ¿De verdad crees que esto es una ilusión? Jujuju, quería mostrarte esto mucho antes. Pero la batalla que se libraba alrededor del castillo aún no había terminado. No quería darte falsas esperanzas con el destino de esos niños."
+"¿Oh? ¿De verdad crees que esto es una ilusión? jajaja, quería mostrarte esto mucho antes. Pero la batalla que se libraba alrededor del castillo aún no había terminado. No quería darte falsas esperanzas con el destino de esos niños."
 
-"¿Qué?" respondió Trixie, incapaz de mantener su semblante controlado.
+"Destino .... ¿Qué?" respondió Trixie, incapaz de mantener su semblante controlado.
 
 "Mira allá," señaló Royalinda más abajo.
 
 Al desviar la mirada en esa dirección, Trixie vio algo que la congeló por completo.
 
-Un enorme cuerpo circular, tan grande como una colina, ardía en la única superficie seca visible en medio de ese mar rojo. La estructura, con patrones en espiral y fuego esmeralda brotando de su superficie rota, delataba un enfrentamiento violento.
+Un enorme cuerpo circular, tan grande como una colina, ardía en la única superficie terrestre reconocible en medio de ese mar rojo. La estructura, con patrones en espiral y fuego esmeralda brotando de su superficie rota, delataba un enfrentamiento violento.
 
 Incrédula, Trixie reconoció el cuerpo sin vida del que otrora fue el terrible monstruo YRAG.
 
@@ -398,11 +400,11 @@ El asombro de Trixie, quien hasta entonces había creído haber derrotado a ese 
 
 No muy lejos del caparazón destrozado de YRAG, una enorme estatua blanca yacía rota en el suelo. A esa distancia, se asemejaba a los restos de un delicado juguete de porcelana roto, pero Trixie pudo distinguir la figura que formaban esas piezas.
 
-Era la de un gran elefante...
+Era la de un gran elefante blanco ...
 
-"Ocellus..." no pudo contener el quejido que escapó de su boca. El mundo daba vueltas a su alrededor, el aire se le hacía escaso. No quería pensar más... no quería saber más...
+"Ocellus..." no pudo contener el quejido que escapó de su boca. El mundo daba vueltas a su alrededor, el aire se le hacía escaso. Su cerebro se deuvo. No quería pensar más... no quería saber más... porque si lo hacia ...
 
-"¡Jajajaja!" Royalinda estalló en carcajadas. "Las cosas no resultan como uno espera. lo entiendo, suele pasar, 'lo importante es seguir adelante y aprender de tus errores'. ¿No es eso algo que enseñan en tu Escuela para Tontos? Jaja Cualquiera puede aprender eso. Cualquiera menos tú, por supuesto."
+"¡Jajajaja!" Royalinda estalló en carcajadas. "Las cosas no resultan como uno espera. Lo entiendo, lo entiendo, suele pasar,  jajaja  'lo importante es seguir adelante y aprender de tus errores'. ¿No es eso algo que enseñan en tu Escuela para Tontos? Jaja Cualquiera puede aprender eso. Cualquiera menos tú, por supuesto."
 
 Trixie, esforzándose por no derrumbarse, respiraba con dificultad, sintiendo el sudor frío recorrer su cuerpo. Sus ojos, enrojecidos por la presión, se fijaron en el cielo sobre ella.
 
@@ -410,147 +412,66 @@ Un vasto espacio cósmico se movía rápidamente en el firmamento nocturno, rode
 
 Mareada, apenas logrando mantenerse en pie, Trixie volvió su mirada hacia Royalinda.
 
-"Cuando despertaste esta mañana, ¿imaginaste que tu mundo acabaría de esta forma? Ju ju. Creo que no," dijo Royalinda con una satisfacción evidente, mientras chocaba los cascos. De pronto, la vista ilusoria se apagó como una pantalla, y la habitación volvió a su estado original. Royalinda se acomodó con tranquilidad, sirviéndose otra taza de té, como si nada hubiera pasado.
+"Cuando despertaste esta mañana, ¿imaginaste que tu mundo acabaría de esta forma? Ju ju. Creo que no," dijo Royalinda con una satisfacción evidente, mientras chocaba los cascos. De pronto, la vista ilusoria se apagó como una pantalla, y la habitación volvió a su acogedor estado original. Royalinda se acomodó en su asiento con tranquilidad, sirviéndose otra taza de té, como si nada hubiera pasado.
 
-Trixie, en un estado casi catatónico, fijó la vista en el vacío de la habitacion. Su mente, se hallaba enredada en un torbellino de recuerdos.
+Trixie, en un estado casi catatónico, fijó la vista en el espacio vacío frente a ella. Su mente, se hallaba enredada en un torbellino de pensamientos y recuerdos.
 
 "Starlight... Sunburst... Los niños... yo..." murmuró apenas, con una voz quebrada. Los rostros de sus amigos y alumnos revoloteaban en su mente como fantasmas que no podía ahuyentar.
 
-¿Cuánto más podría fallar ese día?
+Toda la persecucion anterio..., la pelea en el puente ... todo ... ¿Habia sido inutil? ¿Cuánto más podría fallar ese día?
 
-Quiso llorar, pero sus ojos, secos y agotados, ya no tenían lágrimas para derramar.
+Quiso llorar, pero sus ojos, secos y agotados, le ardian, ya no tenían lágrimas para derramar.
 
 Con un sabor agrio en la boca y un nudo formándose en su garganta, Trixie, con un movimiento desesperado presa de la agonia interna que la consumia, lanzó la taza de té sobre la mesa, rompiendo el silencio. Las mantícoras doradas que sus costados se agitaron, al otro lado de la mesa Royalinda afilo su mirada.
 
-"¡¿Qué quieres de mí?!" erupciono en voz alta, habia ira en sus palabras pero esta se ahogaba en un mar de angustia. Su voz, debilitada por el agotamiento y pena, apenas contenía una amenaza.
+"¡¿Qué quieres de mí?!" erupciono en voz alta, habia ira en sus palabras pero esta se ahogaba en un mar de desesperacion. Su voz, debilitada por el agotamiento y pena, apenas contenía una amenaza.
 
-"¿Qué quiero de ti? ¿A qué te refieres?" respondió Royalinda, fingiendo ingenuidad a la pregunta de Trixie.
+"¿Qué quiero de ti? ¿A qué te refieres?" respondió Royalinda, fingiendo ingenuidad a la pregunta de Trixie. Le dio un sorbo a su taza de te.
 
 "Dijiste que querías acabar conmigo personalmente. ¿Por qué no lo has hecho aún?"
 
 Royalinda hizo una pausa, tomando una sobreactuada postura de reflexion. Despues de una pausa y asentir consigo misma tal como haria una niña en un juego. Finalmente respondio. "Esa es una pregunta estúpida a estas alturas. Hazte una mejor. ¿Qué tanto crees que te odio?"
 
-Trixie, temblaba y apretaba los dientes con furia. Pero con toda su atencion fija en Royalinda. Tenía la mirada desafiante de un animal acorralado, desnudo y vulnerable, frente a un depredador implacable.
+Trixie guardo silencio, temblaba y apretaba los dientes con furia. Toda su atencion fija en Royalinda. Tenía la mirada desafiante de un animal acorralado, desnudo y vulnerable, frente a un depredador implacable.
 
-Royalinda, complacida, sabía que había logrado lo que buscaba.
+Royalinda, entonces respondio a esa mirada. Ambas se observaron mutuamente, estudiandose, adivinando las intenciones del otro...
 
-"Ya no te queda nada," afirmó con frialdad. "Lo veo en tus ojos. Antes pensé que tal vez mostrarte el exterior no sería suficiente, que intentarías algo inútil en mi contra. Pero ahora sé que no eres tan dura. Ya no hay nada más que puedas hacer. Esto se acabó... y estoy satisfecha."
+Tras un largo tiempo, que parecio detenerse, finalmente Royalinda aparto la mirada, complacida. 
+
+Había logrado lo que buscaba.
+
+"Ya no te queda nada," afirmó con frialdad. "Lo veo en tus ojos. Antes pensé que tal vez mostrarte el exterior no sería suficiente para quebrarte, que intentarías algo inútil en mi contra. Pero ahora sé que no eres tan dura. Ya no hay nada más que puedas hacer. Ni nadie vendra en tu ayuda. Esto se acabó... y estoy satisfecha."
 
 Trixie no cambió la expresión en su rostro, sus ojos seguían fijos en Royalinda, observando cómo se levantaba de su asiento, ya sin la sonrisa burlona de antes. La luz del cuerno de Sunburst comenzó a brillar intensamente mientras preparaba un nuevo hechizo.
 
-"Tengo muchos planes para el futuro de este reino... o lo que quede de él. Y tú no tendrás lugar en ese futuro, ni en el mío, ni en el de nadie," continuó Royalinda, su voz grave y cargada de desprecio. "Considera esto un regalo especial de mi parte..."
+"Ya he gastado mucho tiempo contigo, debo prepararme para mi ascenso en este reino... o lo que quede de él. Mi futuro sera grandioso. Y tú no tendrás lugar en ese futuro, ni en el de nadie," continuó Royalinda, su voz grave y cargada de desprecio. "Considera esto un regalo especial de mi parte..."
 
-La luz en el cuerno de Sunburst se intensificó, cegadora en su brillantez. Pero Trixie no apartó la mirada.
+La luz en el cuerno de Sunburst, que era controlado por Royalinda, se intensificó. Una luz cegadora en su brillantez inundo la habitación.  Trixie no apartó la mirada.
 
-"Solo para ti, esta magia antigua y poderosa: '¡La bendición de los Señores de la Oscuridad!'" proclamó Royalinda mientras la luz mágica se lanzaba directamente hacia Trixie.
+"Solo para ti, esta magia antigua y poderosa: " proclamó Royalinda apuntando su cuerno contra Trixie "'¡La bendición de los Señores de la Oscuridad!'" 
 
-Trixie, quien hasta entonces había permanecido inmóvil y desafiante, suavizó la expresión de su rostro en el último momento. Cuando la luz la envolvió, dejó de resistirse.
+El haz de luz magica salio disparado.
 
-"Starlight..." gritó una última vez antes de ser arrastrada por la corriente mágica.
+Trixie, quien hasta entonces había permanecido inmóvil y desafiante, suavizó la expresión de su rostro en el último momento. Un semblante de liberacion reemplazo su rostro mientras la luz magica la envolvia. 
 
+Dejó de resistirse. 
 
+"Starlight..." gimio una última vez antes de ser arrastrada por la corriente mágica.
 
+---
 
+Salió de la habitación, aún conmocionada. Todo se había sentido muy real... Demasiado real.
 
+Trixie sacó una botella de sidra que guardaba en su capa y, en un movimiento rápido, la destapó, vertiendo todo su contenido en su interior.
 
+"Ahhhhhhhhhhhhhhhhhh," exhaló al terminar, apoyándose en una pared hasta dejarse caer al suelo.
 
+A su alrededor, delante y detrás de ella, un vasto pasillo cósmico se desplegaba. La puerta a su espalda se inundó de una luz blanca, cerrándose de la misma manera que todas las demás puertas infinitas que aparecían en ese extraño corredor.
 
+"¿Ahora me crees?"
 
+Trixie, aún sin ánimos, miró de reojo. No estaba sola en aquel pasillo.
 
+"Sí... ¡necesito ayuda!" suplicó, consternada, llevándose los cascos a la cabeza.
 
-
-
-
-
-
-
-
-
-
-"He terminado", dijo Summermoon con frialdad, incorporándose del suelo. Ahí, tirada frente a ella, en medio de un mar de rosas, yacía el cuerpo inconsciente de Trixie Lulamoon, a quien acababa de manipular la mente.
-
-"Excelente", respondió Dhona Oleg-Nar Dhazer, unos pasos detrás. "Será un magnífico peón."
-
-"Jjjsjsj, debo reconocer que esta vez sí has montado un teatro muy difícil de desmontar, mi querido Doni", dijo Summermoon, volviendo su mirada pícara hacia Dhona.
-
-"Y, sin embargo, podría no ser suficiente. Este mundo maldito siempre encuentra la manera de arruinar la voluntad de la oscuridad. La intromisión de esta patética criatura es prueba de eso."
-
-"¡Ohhh! No me digas que aún te sientes mal porque esta 'gran y poderosa unicornio' arruinó el mejor de tus aburridos y estúpidamente largos planes de destrucción absoluta mundial." El sarcasmo en la voz de Summermoon era evidente.
-
-"Hmm..." Dhona no le respondió y, en su lugar, le dio la espalda, alejándose. De inmediato, Summermoon soltó una carcajada.
-
-"Tendré que decirle todo esto a mi señor Kal-Arth, Dhona", dijo en voz alta Summermoon con repentina seriedad, observando cómo Dhona subía por unas escalinatas de piedra blanca.
-
-"Hazlo. Has obrado bien hoy. Serás recompensada en el futuro." respondio sin voltearse o detenerse
-
-"¿En el futuro? Hoy somos aliados, Doni. Mañana no lo sé."
-
-"Volverás. He visto el futuro."
-
-"Tú solo has visto tu futuro."
-
-"Sí... será grandioso", respondió Dhona, ya muy lejos, arriba de ella.
-
-Summermoon mostraba un rostro severo mientras Dhona continuaba alejándose, ascendiendo por las escalinatas de piedra. Sin embargo, había una sonrisa sutil y oscura en su interior. ¿Acaso Dhona realmente creía que ella no se atrevería a hacer nada, o que si lo hacía, no tendría importancia en el futuro que él había preparado? Había manipulado la mente de ese poni según sus instrucciones, pero había añadido algunas cosas más, cortesía suya.
-
-Ella era la tercera estrella oscura, Summermoon Darkstar, y tenía sus propios objetivos a futuro. Dhona era un activo muy importante para alcanzarlos, pero nada más.
-
-"Nos vemos luego, Doni." Sin nada más que hacer allí, Summermoon comenzó a descender por las escaleras.
-
-Las emociones que llenaban a Summermoon eran muy distintas a las que había tenido al subir a aquel lugar cargando a Trixie. Ahora se marchaba con la frente en alto, muy satisfecha. No solo había encontrado un chivo expiatorio para contrarrestar las acusaciones de sus hermanas cuando volviera con ellas, sino que ahora también tenía información vital para su amo, lo que sin duda sería recompensado. Además, había asegurado su propio futuro pactando con el señor oscuro Pit Prompt un posible acuerdo de servidumbre en caso de que eventualmente todo le fuera mal.
-
-"Un ganar y ganar, más postre", pensaba. Summermoon sonreía mientras saltaba escaleras abajo.
-
-El camino descendente se hacía más empinado a cada momento. Los peldaños, cada vez más estrechos, pronto desaparecieron, dando paso a un precipicio luminoso lleno de blancura. Divertida, Summermoon saltó sobre las rocas que flotaban en forma de puente hacia el otro extremo del abismo.
-
-Ya en terreno más firme, se encontró en medio de un largo camino blanco que conducía a un inmenso castillo cuya forma se asemejaba a un árbol de pino. Sobre aquel castillo, en un cielo blanco que no era cielo, una inmensa pirámide invertida apuntaba su afilado vértice atravesando las nubes espesas de aquella enorme caverna subterránea en la que estaban.
-
-Bajo las tierras del olvidado continente de Eufalia, bajo las piramides ...
-
-Silbando, Summermoon continuó su marcha. A ambos lados del camino, decenas de inmensos monstruos observaban atentos sus movimientos, pero ella no les prestó atención.
-
-"Es un día maravilloso", susurró alegre Summermoon, dando cabriolas mientras seguía el camino.
-
-Muy lejos, desde lo alto, en la cima del zigurat de siete niveles, Dhona Oleg-Nar Dhazer la observó ingresar al castillo.
-
-La atención de aquel ser oscuro se centró entonces en la inconsciente Trixie, que se encontraba un nivel debajo de él. La unicornio seguía dormida, envuelta en un plácido sueño rodeada de rosas rojas de esperanza y desesperacion.
-
-"Todo sea para alcanzar la meta...", murmuró Dhona desde el nivel más elevado del zigurat. "Aquí estarás a salvo de la medianoche, pequeño poni. Mientras el destino de tus aliados aún es incierto, ten por seguro que pagarás con creces lo que me has costado."
-
-La sonrisa de Dhona se extendía, y sus ojos esmeralda fulguraban.
-
-Perder un súbdito (como YRAG) no importaba, aliarse con Summermoon (una peligrosa rival) tampoco.
-
-Todo sacrificio era aceptable si la meta, aquel destino... el objetivo final de su existencia, por fin era alcanzado.
-
-Aquel dulce y hermoso final.
-
-Dhona, en la cima del zigurat, se dio la vuelta y contempló entonces aquello por lo que estaba dispuesto a hacer cualquier sacrificio.
-
-El éxtasis llenaba su ser al ver aquel rostro. Sin hacer ruido, dejó caer la capa que lo envolvía en secretos y avanzó hacia él.
-
-Desnudo, mostrando su verdadera forma (una vista que casi nadie había presenciado), avanzaba con sus extremidades abiertas sobre un suelo cubierto de sal. Cada paso resonaba en el vasto vacío, como si el silencio del lugar amplificara su peso.
-
-Extendía los brazos, como un hijo que se aproxima a su madre, buscando un consuelo antiguo y primordial. Y, en efecto, eso era lo que tenía delante. Su madre...
-
-Lo que quedaba de ella.
-
-Sobre el inmenso zigurat de colores verde y azul, una cabeza colosal, decapitada y descompuesta por el tiempo, descansaba en la cima. El rostro, inclinado hacia un lado, mostraba una expresión que no parecía de este mundo: blanco, huesudo, y con las cuencas de los ojos vacías, que habían perdido su contenido hacía incontables milenios. De aquellos vacíos, ríos de sal descendían en cascadas por las laderas del zigurat, creando una corriente interminable. La boca, cosida y seca, formaba una mueca grotesca, un gesto torcido que evocaba tanto desprecio como pena. No había rastro de nariz en ese rostro olvidado, solo la cabellera, roja y negra como cuerdas desgastadas, que caía como cicatrices sobre la piel blanca del cráneo.
-
-Dhona avanzó, hasta que pudo tocar la piel fría de aquel cadáver titánico. Con reverencia, como si cada contacto fuese sagrado, se inclinó ante ella. Sus gemidos de infante se entremezclaban con susurros de adoración, reverberando en el aire espeso como una musica funebre.
-
-Rezaba. Rezaba a las estrellas, al vacío de la noche, al olvido mismo. Su voz, arrastrada por el viento, se convertía en un eco fantasmal, una plegaria viviente que se extendía por todo el zigurat.
-
-Sus oraciones, en un aire convertido en prosopeya, como un velo sombrio, descendieron hasta lo más bajo del templo.
-
-Allí, un nivel por debajo, Trixie Lulamoon yacía dormida entre flores, mientras mariposas negras revoloteaban sobre su nariz. Las orejas de la unicornio se movieron de un lado a otro, como si las palabras del viento le susurraran en sus sueños.
-
-"Shhhh... No hagan ruido. El show apenas empieza..." murmuró entre sueños, moviendo las patas en sincronía con los escenarios oníricos en los que su mente danzaba.
-
-Sin nada extraordinario mas que añadir, finalmente, de un extremo a otro ... el día más largo había llegado a su fin.
-
-Por ahora, el telón rojo caía para la gran y poderosa Trixie.
-
-
-
-
+"Para eso estoy aquí," respondió Summermoon, asintiendo con el menton su decisión.
