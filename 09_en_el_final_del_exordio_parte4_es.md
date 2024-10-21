@@ -1,5 +1,9 @@
 # Capítulo 7: En el final del Exordio - Parte 4
 
+¿Esto es real?
+
+---
+
 Sobre las tierras de Equestria, perdiéndose en la línea final del horizonte, el sol del día más largo se acercaba al final de su viaje.
 
 En Ponyville, una rústica y apacible villa cercana a la capital del reino, la luz crepuscular bañaba los tejados de las casas con una calidez suave y perezosa.
