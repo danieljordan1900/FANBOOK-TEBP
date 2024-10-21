@@ -705,7 +705,7 @@ El tormentoso viaje que los Young-Six habían vivido junto a su problemática ma
 
 Trixie Lulamoon seguiría su camino sin ellos.
 
-Pero los Young-Six, desamparados ante el avance de la 'medianoche', aún tenían un papel que cumplir en ese largo y penoso día.
+Pero los Young-Six, desamparados ante el avance de la 'medianoche', aún tenían un papel más que cumplir en ese largo y penoso día.
 
 No obstante, esa sería… otra historia.
 
@@ -725,9 +725,9 @@ Sin embargo, no perdió la conciencia. Tampoco dejó de sentir.
 
 Todo fue comprimido. Cayó envuelta por una fuerza desconocida, sofocada y golpeada una y otra vez.
 
-El tiempo pasaba. Y... aun seguía consciente.
+El tiempo pasaba. La angustia, la conmocion. Y... aun seguía consciente.
 
-¿Como podia seguir conciente apesar de su agotamiento? ¿Realmente no había muerto? ¿Quien la estaba empujando? ¿Hacia donde?
+¿Como podia seguir conciente apesar de su agotamiento? ¿Realmente no había muerto? ¿Qué la estaba empujando? ¿Hacia donde?
 
 Intento mover su cuerpo varias veces, pero fue en vano. Ya no tenía fuerzas para protestar.
 
