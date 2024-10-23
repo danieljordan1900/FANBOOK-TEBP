@@ -1,4 +1,32 @@
 
+las multiples muertes de Trixie
+
+9 muertes
+
+por explosivos
+
+una botella
+
+starlight la mata
+
+otro exlosivo
+
+puerta oscura
+
+un pavo alcon se la come
+
+mas explosivos
+
+conversacion con summermoon encuentro (principal, summermoon)
+
+
+Trixie decision
+
+El final de Royalinda
+
+El ultimo viaje
+
+
 "He terminado", dijo Summermoon con frialdad, incorporándose del suelo. Ahí, tirada frente a ella, en medio de un mar de rosas, yacía el cuerpo inconsciente de Trixie Lulamoon, a quien acababa de manipular la mente.
 
 "Excelente", respondió Dhona Oleg-Nar Dhazer, unos pasos detrás. "Será un magnífico peón."

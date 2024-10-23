@@ -462,18 +462,20 @@ Dejó de resistirse.
 
 ---
 
-Salió de la habitación, aún conmocionada. Todo se había sentido muy real... demasiado real.
+Salió de la habitación aún conmocionada, respirando con dificultad mientras intentaba procesar lo que había visto y oído.
 
-Trixie se limpio las lagrimas que asomaban en sus ojos, sacó una botella de sidra que guardaba en su capa y, en un movimiento rápido, la destapó, para luego vertir todo su contenido de golpe en su boca y luego en su interior.
+Se había sentido demasiado real... muy real.
 
-"Ahhhhhhhhhhhhhhhhhh," exhaló al terminar, apoyándose en una pared hasta dejarse caer al suelo.
+Trixie se limpió las lágrimas que comenzaban a asomarse en sus ojos. Con un gesto brusco, sacó una botella de sidra de su capa y, en un movimiento rápido, la destapó. Sin vacilar, bebio el contenido de un solo trago, sintiendo el líquido deslizarse con fuerza hasta su interior.
 
-A su alrededor, delante y detrás de ella, un vasto pasillo cósmico se desplegaba. La puerta a su espalda se inundó de una luz blanca, cerrándose de la misma manera que todas las demás puertas infinitas que aparecían en ese extraño corredor.
+"Ahhhhhhhhhhh," exhaló al terminar, dejando que su cuerpo se apoyara pesadamente contra la pared hasta deslizarse al suelo.
+
+A su alrededor, el pasillo que la rodeaba se extendía en todas direcciones, vasto y misterioso, el corredor cósmico permanecia sin cambios envuelto en niebla brillante. La puerta a su espalda se inundó de una luz blanca antes de cerrarse, del mismo modo en que lo hacían las demás puertas infinitas que aparecían a lo largo de ese extraño lugar.
 
 "¿Ahora me crees?"
 
-Trixie, aún sin ánimos, miró de reojo. No estaba sola en aquel pasillo.
+Trixie, sin apenas ánimos, levantó la mirada con desgano. No estaba sola en ese pasillo.
 
-"Sí... ¡necesito ayuda!" suplicó consternada, con una expression exagerada en su rostro, llevándose los cascos a la cabeza.
+"Sí... ¡necesito ayuda!" suplicó, con una expresión exagerada en el rostro mientras se llevaba los cascos a la cabeza, desesperada.
 
-"Para eso estoy aquí," respondió Summermoon, asintiendo con el menton la decisión.
+"Para eso estoy aquí," respondió Summermoon, asintiendo suavemente con el mentón.
