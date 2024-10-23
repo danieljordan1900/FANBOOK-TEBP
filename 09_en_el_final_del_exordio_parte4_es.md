@@ -464,7 +464,7 @@ Dejó de resistirse.
 
 Salió de la habitación, aún conmocionada. Todo se había sentido muy real... demasiado real.
 
-Trixie se limpio las lagrimas que asomaban en sus ojos, sacó una botella de sidra que guardaba en su capa y, en un movimiento rápido, la destapó, para luego vertir todo su contenido de golpe en su interior.
+Trixie se limpio las lagrimas que asomaban en sus ojos, sacó una botella de sidra que guardaba en su capa y, en un movimiento rápido, la destapó, para luego vertir todo su contenido de golpe en su boca y luego en su interior.
 
 "Ahhhhhhhhhhhhhhhhhh," exhaló al terminar, apoyándose en una pared hasta dejarse caer al suelo.
 
@@ -474,6 +474,6 @@ A su alrededor, delante y detrás de ella, un vasto pasillo cósmico se desplega
 
 Trixie, aún sin ánimos, miró de reojo. No estaba sola en aquel pasillo.
 
-"Sí... ¡necesito ayuda!" suplicó, consternada, llevándose los cascos a la cabeza.
+"Sí... ¡necesito ayuda!" suplicó consternada, con una expression exagerada en su rostro, llevándose los cascos a la cabeza.
 
-"Para eso estoy aquí," respondió Summermoon, asintiendo con el menton su decisión.
+"Para eso estoy aquí," respondió Summermoon, asintiendo con el menton la decisión.
