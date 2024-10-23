@@ -58,15 +58,15 @@ El destino de Trixie parecía estar sellado. Un final espantoso y cruel bajo las
 
 Después de lo que pareció una eternidad en la mente de quienes observaban, el monstruo hizo finalmente su movimiento.
 
-La presencia desconocida no podia creer lo que observaban.
+La presencia desconocida no podia creer lo que observaba.
 
 "No... imposible..."
 
-Era inaudito, totalmente contrario a lo que el sentido común dictaría como un suceso predecible. ¡Aquel enorme y poderoso monstruo no había acabado con Trixie! Es más, la había dejado a un lado, suspendida en la punta de uno de sus tentáculos principales, como si tuviera algún valor para él.
+Era inaudito, totalmente contrario a lo que el sentido común dictaría como un suceso predecible en esas circunstancias. ¡Aquel enorme y poderoso monstruo no había acabado con Trixie! Es más, la había dejado a un lado, suspendida en la punta de uno de sus tentáculos principales, como si tuviera algún valor para él.
 
 "Imposible, imposible, imposible..."
 
-Incrédula, la mente de la presencia desconocida se volvió un torbellino de confusión. ¿Por qué el monstruo no había eliminado a Trixie? ¿Cual era entonces su objetivo? ¡¿De dónde había salido para empezar?! Ella había orquestado la persecución mortal que habían sufrido Trixie y los Young-Six durante toda la tarde. Había invertido tanto tiempo y recursos en tratar de eliminarlos, y había estado tan cerca de lograrlo. Pero ahora...
+Incrédula, la mente de la presencia desconocida se volvió un torbellino de confusión. ¿Por qué el monstruo no había eliminado a Trixie? ¿Cual era entonces su objetivo? ¡¿De dónde había salido para empezar?! Ella había orquestado la persecución mortal que habían sufrido los Young-Six y la propia Trixie durante toda la tarde. Había invertido tiempo y recursos en tratar de eliminarlos, y había estado tan cerca de lograrlo. Pero ahora...
 
 Ahora...
 
@@ -74,75 +74,75 @@ Ahora...
 
 ---
 
-Las órdenes llegaron abruptamente. Las armaduras encantadas con forma de mantícoras, que hasta entonces se habían posicionado sigilosamente en los pisos superiores donde se encontraban los Young-Six, sintieron el apremiante llamado de su amo. Dejaron de lado la instrucción anterior de eliminar al grupo de amigos que estaba a punto de escapar al balcón, y se lanzaron al ataque.
+Las órdenes llegaron abruptamente. Las armaduras encantadas con forma de mantícoras, que hasta ese momento se habían posicionado sigilosamente en los pisos superiores, donde se encontraban los Young-Six, recibieron el apremiante llamado de su amo. Abandonando la instrucción anterior de eliminar al grupo de amigos, que se preparaban para escapar al balcón, se lanzaron al ataque.
 
-"¡GROOOOOOO!" rugieron una veintena de esas armaduras, lideradas por una manticora dorada más brillante que las demás. Esta figura destacaba, portando una batería de ballestas en su espalda y una capa azul brillante. Juntas, estas violentas entidades metálicas dieron un salto colosal, lanzándose hacia el centro del abismo donde el único puente que cruzaba el vasto atrio rectangular los esperaba.
+"¡GROOOOOOO!" rugieron al unísono. A la cabeza, una manticora dorada, más brillante que las demás, lideraba la carga. Esta figura imponente portaba una batería de ballestas en su espalda y una capa azul brillante que ondeaba con el viento. Con un salto poderoso, el capitán de las armaduras, seguido por su séquito, surcó el aire como un proyectil, dirigiéndose al abismo que se extendía debajo de ellos.
 
-Allí, al otro lado, se encontraba el imponente monstruo que había desafiado la voluntad de su creador.
+Allí, en medio del puente que atravesaba el gran atrio del castillo, se encontraba su verdadero objetivo: Trixie Lulamoon, custodiada por el imponente monstruo que había desafiado la voluntad de su creador.
 
-Carentes de emociones que los frenaran, las armaduras, en su vertiginoso descenso, chocaron contra la barrera mágica que rodeaba al monstruo. Una barrera capaz de dejar inconsciente a cualquier ser vivo que la tocara, a menos que contara con protección especial. Sin embargo, esa defensa no tenía efecto sobre las armaduras, que, carentes de vida, no sufrieron sus efectos. Solo con la fuerza de sus garras de metal, comenzaron a golpear la barrera mágica hasta atravesarla.
+Las armaduras, carentes de emociones, descendieron vertiginosamente por el atrio y chocaron contra la barrera mágica que protegía al monstruo. Aquel impacto, capaz de dejar inconsciente a cualquier ser vivo que lo forzara, no tuvo efecto alguno en ellas. Las armaduras encantadas no poseían una vida real, por lo que la magia no surtió efecto. Apenas recuperadas del choque, con la fuerza de sus garras metálicas, empezaron a golpear la barrera hasta que lograron atravesarla.
 
-No todas tuvieron éxito. Varias quedaron atrapadas fuera, luchando por romper la barrera.
+No todas lo consiguieron. Varias quedaron atrapadas fuera, pero las que sí lograron cruzar continuaron inmediatamente su descenso.
 
-Sin mirar atrás, una docena de armaduras aterrizó sobre el puente. Sin perder un segundo, se lanzaron directamente contra el monstruo ciclópeo.
+"SPLATTTT" Una docena de armaduras con forma de mantícoras aterrizó con violencia sobre el puente, cargando directamente contra el monstruo ciclópeo en el otro extremo sin perder un segundo.
 
-Pero ese movimiento ya había sido anticipado, tanto por el monstruo como por los atacantes.
+Sin embargo, aquel movimiento temerario ya había sido anticipado, tanto por el monstruo como por los atacantes.
 
-En lugar de caer sobre el puente, el líder de las mantícoras doradas se aferró a uno de sus bordes, apenas unos centímetros por debajo, fuera del campo de visión del monstruo. Apenas logró ocultarse cuando una poderosa corriente de electricidad negra fulminó a todos sus compañeros que habían avanzado.
+Sabiendo lo que ocurriría, el capitán de las armaduras abandonó el ataque frontal. Se dejó caer hacia un lado del puente, aferrándose con dificultad al borde y colgándose por debajo, fuera del campo de visión del monstruo. Apenas lo hizo cuando una poderosa corriente de electricidad negra fulminó a todas las armaduras que avanzaban contra el monstruo.
 
-Pero eso no los detendría.
+La primera oleada había fallado. Sin embargo, este revés, ya calculado, no detendría a las armaduras encantadas.
 
-Una segunda ola de armaduras, aún más numerosa que la anterior, ya se preparaba para lanzarse al ataque. Guiado por la mente que lo controlaba, el capitán de las mantícoras doradas aguardó la llegada de la nueva oleada para ejecutar su movimiento.
+Una segunda oleada, aún más numerosa que la anterior, ya se preparaba para lanzarse al ataque. Guiado por la mente que lo controlaba, el capitán de las armaduras esperó pacientemente, aguardando el momento preciso para ejecutar su siguiente movimiento.
 
-"¡GROOOOOOO!" La segunda oleada llegó, y el capitán supo que era el momento.
+"¡GROOOOOOO!" Un nuevo rugido y el estruendo metálico sobre el puente anunciaron la llegada de la segunda oleada. El capitán supo que era la señal.
 
-Con un giro rápido, utilizando su enorme fuerza, el capitán se impulsó desde el borde del puente que se resquebrajaba cada vez más. Con una agilidad imposible para un ser vivo, contorsionó su cuerpo en pleno vuelo. Cada milisegundo contaba. En medio del salto, apuntó con precisión su ballesta hacia el tentáculo que mantenía prisionera a Trixie.
+Con un giro rápido y utilizando su descomunal fuerza, el capitán se impulsó desde su escondite debajo del puente hacia una de las paredes del gran atrio. Su agilidad, imposible para un ser vivo, le permitió contorsionar su cuerpo en pleno vuelo. Cada milisegundo contaba. Mientras aún se encontraba en el aire, apuntó con precisión su ballesta hacia el tentáculo que mantenía prisionera a Trixie.
 
-Sabía que Trixie podría morir en el ataque. Era un riesgo desafortunado, pero aceptable.
+Disparó. Sabía que el ataque podría resultar fatal para Trixie, un riesgo colateral que su amo consideraba aceptable.
 
-Las flechas silbaron en el aire. El capitán de las armaduras sintió su cuerpo envolverse en llamas esmeraldas, pero su ofensiva había sido exitosa.
+Las flechas silbaron por el aire. En ese mismo instante, el cuerpo del capitán fue envuelto en llamas esmeraldas, y partes de su estructura comenzaron a ser consumidas por la magia abrasadora. Pero, incapaz de sentir dolor, completó su ofensiva con éxito.
 
-El monstruo, sorprendido por el ataque inesperado, sintió el dolor punzante de las flechas que perforaban su piel como pequeños alfileres. Por un instante, soltó a su presa.
+Del otro lado, su oponente, sorprendido por el ataque inesperado, sintió el dolor punzante de las flechas que perforaban su cuerpo como si fueran diminutos alfileres. Su reacción fue inmediata. En un acto reflejo, YRAG, el terrible monstruo que había invadido el castillo de Twilight, soltó brevemente a su presa.
 
-El capitán de las armaduras chocó contra las paredes del atrio. Su cuerpo, medio consumido por las llamas esmeraldas, se aferró desesperadamente a las rocas flotantes cercanas.
+El capitán, medio consumido por las llamas, chocó violentamente contra una de las paredes del atrio. A pesar de los graves daños sufridos, sus instintos de supervivencia se mantenian intactos. Aferrándose con todas sus fuerzas a las rocas flotantes cercanas, evitó caer en el profundo vacío.
 
-De repente, sus sentidos mecánicos lo alertaron. Giró su cabeza en un ángulo de 180 grados. Aunque no estaba diseñado para sentir emociones, por un instante, ese ser mecánico experimentó algo parecido al asombro.
+Mientras intentaba recuperarse, sus sensores mecánicos lo alertaron de inmediato. Girando su cabeza en un ángulo de 180 grados, el capitán detectó algo inesperado. Aunque no estaba diseñado para sentir emociones, por un instante, experimentó algo que podría describirse como asombro.
 
-Una luz, cuya forma el capitán de las armaduras no podía identificar debido a sus limitados conocimientos, salió disparada desde el centro del puente, ascendiendo por el vasto atrio del castillo.
+Una luz, cuya forma el capitán de las armaduras no podía identificar debido a sus limitados conocimientos, salió disparada desde el centro del puente, ascendiendo hacia el vasto cielo del atrio del castillo.
 
-Imparable, la luz continuó su trayectoria, escapando de la barrera magica del monstruo y ascendiendo errática hasta desaparecer de la vista.
+Imparable, la luz continuó su trayectoria, atravesando la barrera mágica del monstruo y ascendiendo de manera errática hasta desaparecer de la vista.
 
 Y luego...
 
-Una explosión resonó por todo el atrio, sacudiendo las estructuras más altas.
+Una explosión retumbó por todos lados, sacudiendo las estructuras más altas.
 
 Grandes fragmentos de piedra comenzaron a caer, y el caos se desató a su alrededor.
 
-El capitán observó toda esta destruccion mientras nueva información llegaba a su mente. Las órdenes seguían siendo las mismas, pero ahora incluían más detalles.
+El capitán observó la destrucción mientras nueva información llegaba a su mente. Apremiantes, las órdenes seguían siendo las mismas, pero ahora incluían más detalles.
 
 Todo dependía de él.
 
-Apenas aferrado a las rocas flotantes, el capitán reunió las fuerzas innatas que aún persistían en su cuerpo dañado. Sabía que solo tenía una oportunidad.
+Apenas aferrado a las rocas flotantes, el capitán evaluó los daños que sufría y las fuerzas que le quedaban. Concluyó que solo tendría una oportunidad.
 
-La presión en el aire aumentó aún más. El colapso había comenzado.
+La presión en el aire aumentó aún más. El colapso del interior del castillo había comenzado.
 
-En medio del puente, que se resquebrajaba bajo la creciente tensión, el monstruo YRAG apenas contenía las enormes piedras que caían sobre él. En el extremo del balcón, Ocellus era arrastrada entre gritos de negación por sus compañeros.
+En medio del puente, que se resquebrajaba bajo la creciente tensión, el monstruo YRAG luchaba por contener las enormes piedras que caían sobre él. En el extremo del balcón, Ocellus era arrastrada entre gritos de negación por sus compañeros.
 
-El polvo, el humo y las llamas verdes llenaron el aire, nublando la vista de todos. Y entonces, todo comenzó a caer.
+El polvo, el humo y las llamas verdes llenaron el aire, nublando la vista de todos. Y entonces, en medio de un suspiro, todo comenzó a caer.
 
 Ese era el momento decisivo.
 
-El capitán de las armaduras, habiendo esperado el momento preciso, se impulsó con fuerza desde una roca flotante en medio del colapso total. Salió disparado a una velocidad casi imposible en dirección al puente, donde yacía el cuerpo exhausto pero aún consciente de Trixie. Su misión: capturar a la unicornio en plena caída. La acrobacia era imposible para cualquier otro ser, pues el fuego, el humo y las rocas ardientes lo obstaculizaban. Sin embargo, aunque su cuerpo sufrió daños considerables, el capitán avanzó sorteando todos los peligros con precisión mecánica.
+El capitán de las armaduras, habiendo esperado ese instante, se impulsó con fuerza desde una roca flotante en medio del colapso total. Salió disparado a una velocidad casi imposible en dirección al puente, donde yacía el cuerpo exhausto de Trixie. Su misión: capturar a la unicornio en plena caída. La acrobacia era imposible, pues el fuego, el humo y las rocas ardientes lo obstaculizaban. Sin embargo, el capitán avanzó sorteando todos los peligros con precisión mecánica.
 
-En un movimiento limpio, y casi imperceptible para la propia Trixie, el capitán logró atraparla en medio de su caída.
+En un movimiento limpio, el capitán logró atrapar a Trixie en medio de su caída.
 
 "¡TROWWWWWW!" Las explosiones de fuego esmeralda continuaron desatándose, acelerando la caída vertiginosa hacia el fondo del atrio, que se aproximaba rápidamente.
 
-Envuelto en su capa, el capitán tomó a Trixie con su garra, amarrándola firmemente. Con esa misma extremidad apuntó hacia una de las paredes del atrio, que se acercaba a toda velocidad.
+Envuelto en su propia capa azul, el capitán tomó a Trixie con su garra, sujetándola firmemente. Con esa misma extremidad, apuntó hacia una de las paredes del atrio que avanzaban a toda velocidad.
 
-"¡PUFFFFFFFFFFFFF!" El brazo del capitán se desprendió. Disparado con una velocidad mayor a la de su caída, la garra, con Trixie en su interior, salió disparada hacia una de las puertas en los niveles superiores del castillo. La trayectoria era perfecta, calculada con la precisión que solo una máquina podía lograr.
+"¡PUFFFFFFFFFFFFF!" El brazo del capitán se desprendió. Disparado con una velocidad mayor a la de su caída, la garra, con Trixie en su interior, salió disparada hacia una de las puertas en los niveles superiores del castillo. En una trayectoria perfecta, solo posible gracias al cálculo y precisión de una máquina.
 
-Apenas milisegundos antes de que el cuerpo del capitán alcanzara el fondo del atrio, la garra atravesó el fuego, las rocas y el humo, alcanzando su objetivo.
+Apenas milisegundos antes de que el cuerpo del capitán alcanzara el fondo del atrio, la garra (con Trixie dentro) atravesó el fuego, las rocas y el humo, alcanzando su objetivo.
 
 "[La misión ha sido completada]", reportó el capitán de las armaduras.
 
@@ -154,7 +154,7 @@ El capitán de las armaduras había desaparecido de la faz de este mundo.
 
 ---
 
-En una habitacion lejana. Tras recibir el ultimo mensaje del capitán de las armaduras, las presencia desconocida, Royalinda, finalmente se dejo caer en su asiento, extasiada de por fin haber podido capturar a su tan apremiante presa.
+En una habitación lejana, tras recibir el último mensaje del capitán de las armaduras, la misteriosa presencia (Royalinda) finalmente se dejó caer en su asiento. Un aire de satisfacción la envolvía mientras se hundía en el respaldo, extasiada por haber capturado al fin a su tan codiciada presa.
 
 ---
 
@@ -190,7 +190,7 @@ El cuerpo de Sunburst, cuyos ojos se veían enrojecidos por la posesión mental 
 
 Apenas visible entre el desordenado cabello de Sunburst, una diminuta criatura, semejante a una orquídea con tentáculos de pulpo, asomaba pegada en la nuca del corcel. Este ser rosa, de cuerpo palpitante, tenia (aparte de sus tentaculos) dos apendices de puntas negras que sobresalian de su blanda piel, estos eran sus organos sensoriales, los cuales (tambien sirviendole de ojos) estaban fijos en la dirección de Trixie.
 
-"Ugh..." Trixie sintiendo náuseas al mantener la mirada sobre el parásito que se agitaba en el cuello de su amigo. Incapaz de soportarlo más, apartó la vista.
+"Ugh..." Trixie, incapaz de soportar esa mirada, apartó la vista.
 
 Esta era Royalinda, la última orquídea-pulpo, quien en guardia, observaba cada movimiento de Trixie.
 
@@ -200,15 +200,13 @@ Esta era Royalinda, la última orquídea-pulpo, quien en guardia, observaba cada
 
 "¿De verdad? Si aún estás agotada, puedo restaurar tu salud aún más. Solo pídemelo."
 
-Era verdad. Poco después de que Trixie despertara desorientada en el estudio de Starlight, Royalinda la ayudó curando sus heridas de inmediato y dandole tiempo para recuperar su lucidez.
+Asi habia sido. Poco después de que Trixie despertara desorientada en el estudio de Starlight, Royalinda la ayudó curando sus heridas de inmediato y dandole tiempo para recuperar su lucidez.
 
 En otras circunstancias, habría agradecido fervientemente aquel gesto, pero dado quién era su captora, eso le resultaba imposible. Le costó mucho aceptarlo. De hecho, al principio no lo acepto, pensó que todo era un sueño o que aun estaba soñando, o que quiza, Sunburst y los demás le estaban jugando una cruel broma como castigo. Sin embargo, tras ser electrificada por Royalinda un par de veces, poco a poco empezó a calmarse y a aceptar la realidad en la que se encontraba.
 
 No había muerto. Y ahora estaba en las garras del último enemigo que esperaba encontrarse ese día.
 
-Trixie bebía con fuerza de su té, el sonido resonando en la habitación. A pesar de la serenidad que transmitían los decorados en las paredes, el ambiente era inquietante, haciendo aún más surrealista la situación que se desarrollaba.
-
-"¿Que hago ahora?" la unicornio, se encontraba totalmente perdida, casi echaba de menos estar de vuelta en el gran atrio del castillo, enfrentándose al monstruo caracol de antes.
+("¿Que hago ahora?") la unicornio, se encontraba totalmente perdida, casi echaba de menos estar de vuelta en el gran atrio del castillo, enfrentándose al monstruo caracol de antes.
 
 En medio de su inquietud, mirando de reojo, notó que Royalinda (en el cuerpo de Sunburst) había dejado de leer y ahora la observaba, como si esperara algo.
 
@@ -218,15 +216,15 @@ En medio de su inquietud, mirando de reojo, notó que Royalinda (en el cuerpo de
 
 Madre.
 
-Cada vez que ese ser pronunciaba esa palabra, algo se movía en lo profundo del pecho de Trixie. No era su corazón, sino su estómago, que se retorcía con el repudio que nacía de su interior. Sentía una ira que ya no tenía fuerzas para manifestarse físicamente, pero que aún se expresaba como una náusea creciente y dolorosa que invadía todas sus entrañas.
+Cada vez que escuchaba esa palabra, algo se movía en lo profundo del pecho de Trixie. No era su corazón, sino su estómago, que se retorcía con el repudio que nacía de su interior. Era su ira, que si bien ya no tenía fuerzas para manifestarse físicamente, aún se expresaba en su cuerpo como una náusea creciente y dolorosa que invadía todas sus entrañas.
 
 Deteniéndose un momento, Trixie volvió a mirar de reojo a Royalinda. Esta sonreía, sin mirarla.
 
-El impulso de tirarle el té en la cara y borrar esa estúpida sonrisa invadió su mente por un instante. Pero fue un sentimiento fugaz.
+El impulso de tirarle el té en la cara y borrar esa estúpida sonrisa invadió su mente por un instante. Un sentimiento demasiado fugaz.
 
 La culpa volvió a dominarla.
 
-La orquídea-pulpo ante ella, Royalinda, era la encarnación física de todo su fracaso como profesional, amiga y poni responsable. Era tambien la causante de gran parte de las desgracias que habían vivido Trixie y los Young-Six durante la tarde. No obstante, aquel fruto del maligno, aquel parásito infernal, no había nacido de la nada.
+La orquídea-pulpo ante ella, Royalinda, era la encarnación física de todo su fracaso como profesional, amiga y poni responsable. Era tambien la causante de gran parte de las desgracias que habia vivido con los Young-Six durante la tarde. No obstante, aquel fruto maligno, aquel parásito infernal, no había nacido de la nada.
 
 Alguien lo había alimentado y cuidado, permitiéndole existir en este mundo. Y ese alguien insensato, arrogante y descuidado que habia sido capaz de hacer algo como eso no era nadie más ni nadie menos que la misma Trixie.
 
@@ -234,7 +232,7 @@ Todo era su culpa... en verdad lo era.
 
 Durante aquel día, muchas veces se preguntó qué había hecho para que las cosas tomaran ese rumbo. Pero ahora que tenía la respuesta frente a ella, era incapaz de mirarla a los ojos.
 
-"Qué patética soy..." aplastada por su propia decepción y fatiga, Trixie dejó a un lado su taza de té vacía y agachó la cabeza, con la mirada perdida hacia uno de sus costados.
+("Qué patética soy...") aplastada por su propia decepción y fatiga, Trixie dejó a un lado su taza de té vacía y agachó la cabeza, con la mirada perdida hacia uno de sus costados.
 
 Al otro lado de la mesa, Royalinda, siempre atenta a los movimientos de Trixie, esbozó una sonrisa más afilada.
 
@@ -250,13 +248,13 @@ Trixie, aún confusa, observó a los cuerpos mecánicos que la custodiaban. Tras
 
 "Ahh... cierto. Ellos..."
 
-Podía recordarlo. Aquellas armaduras eran las mismas que había planificado cuando pensó en mejorar el sistema de seguridad del castillo. Aunque solo esbozó algunos diseños basados en las propuestas iniciales de la princesa Luna, el diseño de las mantícoras doradas había sido completamente suyo, una idea original que Starlight elogió en su momento, pero que quedó relegada a las profundidades de los anexos del manual del sistema.
+Era correcto. Aquellas armaduras eran las mismas que había planificado cuando pensó en mejorar el sistema de seguridad del castillo. Aunque solo esbozó algunos diseños basados en las propuestas iniciales de la princesa Luna, el diseño de las mantícoras doradas había sido completamente suyo, una idea original que Starlight elogió en su momento, pero que quedó relegada por su amiga en las profundidades de los anexos del manual del sistema.
 
 Estos mismos planos eran los que Royalinda había encontrado y usado después de tomar el control del puesto de seguridad.
 
-"Espera un momento ...." una pregunta surgió dentro de Trixie. 
+("Espera un momento ....") una pregunta surgió dentro de Trixie. 
 
-En el pasado, ella había insistido a Starlight en usar algún tipo de magia poderosa para crear el sistema de seguridad perfecto para el castillo. Sin embargo, Starlight lo negó rotundamente. Entre los motivos, además de los costos y el peligro inherente, estaba el hecho de que tal magia era muy difícil de realizar y poco conocida.
+En el pasado, ella había insistido a Starlight en usar algún tipo de magia poderosa para crear el sistema de seguridad perfecto para el castillo. Sin embargo, Starlight lo negó rotundamente. Entre los motivos, además de los costos y el peligro inherente, estaba el hecho de que tal magia era muy difícil de realizar y poco estudiada.
 
 Si su amiga Starlight, una magnífica hechicera de alto nivel, no era capaz de realizar semejante proeza, ¿cómo lo había logrado Royalinda?
 
@@ -270,11 +268,11 @@ Si su amiga Starlight, una magnífica hechicera de alto nivel, no era capaz de r
 
 Trixie por fin lo entendió. Royalinda había utilizado el vasto conocimiento de Sunburst para crear aquel implacable ejército de armaduras. Aunque Sunburst era un unicornio con muy poco talento práctico para la magia, su amplio conocimiento, combinado con el talento mágico de Royalinda —quien no tenía las limitaciones de su anfitrión—, había sido el factor clave que desencadenó tan trágico escenario.
 
-Claro, había otro factor más: la energía necesaria para crear tantas armaduras. Para ello, Royalinda utilizó la magia del castillo, que, para su suerte, ya se encontraba cautivo y listo para ser explotado. Esto último, sin embargo, no lo mencionó.
+Claro, había otro factor más: la energía necesaria para crear tantas armaduras. Para ello, Royalinda utilizó la magia del castillo, que, para su suerte, ya se encontraba cautivo y listo para ser explotado. Esto último, sin embargo, no lo mencionó y no tenia interes en explicarselo a Trixie.
 
 "Sunburst..." murmuró Trixie angustiada.
 
-Notando los sentimientos de su prisionera, Royalinda comenzó provocativamente a maltratar uno de los cascos del cuerpo de Sunburst con una pluma, sin mostrar el menor indicio de dolor.
+Notando los sentimientos de su prisionera, Royalinda, tomando una pluma de la mesa, comenzó provocativamente a maltratar uno de los cascos del cuerpo de Sunburst, sin mostrar el menor indicio de dolor.
 
 La ira por fin se reflejó en el rostro de Trixie al ver cómo Royalinda usaba el cuerpo de su amigo como si fuera un juguete. Pero antes que Trixie dijera algo, Royalinda hablo: "Oh, no pongas esa cara. No pienso hacerle nada a este magnífico recipiente. Voy a cuidar bien de él, pero no puedo decir lo mismo de tus otros 'amigos'."
 
@@ -294,7 +292,7 @@ El rostro de Trixie cambió, como al de un poni sorprendido en medio de la noche
 
 Trixie, con su rostro aún pegado contra el frío cristal de la mesa, respiraba con intensidad, ventilando su frustración e ira. La escena actual no era una novedad en la habitacion; ya se había repetido varias veces antes, y por los mismos motivos. A pesar de la aparente conversación natural entre ambas, Royalinda no había contestado ninguna de las preguntas de Trixie sobre el paradero o estado de sus amigos. Tampoco había respondido directamente sobre su verdadera identidad o sus intenciones. Ni siquiera le había dicho su nombre. Hasta ahora, Trixie solo había sido una espectadora pasiva que recibia respuestas indirectas o que no respondian nada. Y cada vez que insistia era torturada con electricidad o el apretar de las cadenas.
 
-Girando la cabeza en dirección a Royalinda, los ojos de Trixie ardian. Hasta ese momento había seguido su juego, pero ahora que su cuerpo y mente comenzaban lentamente a recuperarse, sentía cómo su espíritu de lucha se encendía de nuevo dentro de ella.
+Girando la cabeza en dirección a Royalinda, los ojos de Trixie ardian. Hasta ese momento había seguido su enfermizo juego, pero ahora que su cuerpo y mente comenzaban lentamente a recuperarse, sentía cómo su espíritu de lucha se encendía de nuevo dentro de ella.
 
 Esa chispa en su mirada era precisamente lo que Royalinda había estado esperando.
 
@@ -332,21 +330,21 @@ Una sensación de incertidumbre invadió a Trixie. Era un sentimiento difícil d
 
 La culpa que antes había sentido volvió a inundarla.
 
-De pronto, Royalinda estalló en risas. La escena anterior, que había destilado un aparente dolor interno, desapareció como si nunca hubiera ocurrido. Ahora, con una voz maligna, miraba directamente a Trixie. "No tienes por qué angustiarte por algo así. Era de esperarse que sucediera. Después de todo, somos monstruos, como bien dijiste. Habría pasado de una forma u otra."
+"JAJAJAJAJAJA" De pronto, Royalinda estalló en risas. La escena anterior, que había destilado un aparente dolor interno, desapareció como si nunca hubiera ocurrido. Ahora, con una voz maligna, miraba directamente a Trixie. "No tienes por qué angustiarte por algo así. Era de esperarse que sucediera. Después de todo, somos monstruos, como bien dijiste. Habría pasado de una forma u otra."
 
-Trixie no respondió. La falsa seguridad en las palabras de Royalinda solo profundizaba su culpa. Cabizbaja, recordaba sus estúpidos actos en la Escuela de la Amistad...
+Trixie no respondió. La verdad que se ocultaba en las palabras de Royalinda solo profundizaba su culpa. Cabizbaja, recordaba sus estúpidos actos en la Escuela de la Amistad...
 
 "Abandonarnos en el bosque nos enseñó mucho sobre cómo sobrevivir. Fue difícil, pero aprendimos la lección y nos hicimos más fuertes. Puedo estar muy agradecida por eso..."
 
 "Lo siento..." intentó decir Trixie, pero de inmediato un agarre mágico la silenció. No fueron las cadenas ni un rayo eléctrico como antes, sino un golpe mágico violento, como una bofetada invisible, lo que la impactó.
 
-Al otro lado de la mesa, Royalinda continuaba hablando sin prestarle atención, mientras Trixie jadeaba por el golpe.
+Al otro lado de la mesa, Royalinda, con el cuerno encendido de Sunburst, continuaba hablando sin prestarle atención, mientras Trixie jadeaba por el golpe.
 
 El discurso que escuchaba era tan apasionado como retorcido.
 
 "Mis otros hermanos no sobrevivieron. Eran débiles. Yo, en cambio, soy más fuerte y sé muy bien cuál es mi lugar en este mundo. Es un destino glorioso, que solo los más fuertes pueden alcanzar. ¡Y lo alcanzaré! Seré conocida en todas partes, mi nombre resonará en todas las lenguas, desde las raíces de la misma tierra hasta los confines del tercer cielo. Me alzaré imbatible y aplastaré a todos mis enemigos. Mi poder será tan grande que ni los señores oscuros seran una amenaza para mi. ¡Yo! ¡Yo seré la nueva gobernante absoluta! ¡Nada podrá superarme! ¡Jajajaja!"
 
-Ante los delirios de quien, en otras circunstancias, habría podido ser como una hija, Trixie agachó la cabeza, desolada.
+Ante los delirios crecientes de quien, en otras circunstancias, habría podido ser como una hija, Trixie agachó la cabeza, desolada.
 
 //----------
 
@@ -378,13 +376,13 @@ Entonces, como si fuera la imagen de una película, la luz blanca se desvaneció
 
 Era el mundo exterior. Más precisamente, el exterior del castillo que se reflejaba en todas direcciones. El hechizo de Royalinda habia lanzado, había transformado las superficies de la habitación para mostrar una vista panorámica casi de 360 grados del exterior.
 
-Trixie entendió esto al reconocer los cimientos del castillo debajo de ella, a una prodigiosa altura. Era como si estuviera sentada en el cielo mismo, en la cima de un rascacielos, aunque no sentía ninguna brisa a su alrededor.
+Trixie entendió esto al reconocer, a una prodigiosa altura, los cimientos del castillo debajo de ella. Se encontraba como si estuviera sentada en el cielo mismo, en la cima de un rascacielos, aunque extrañamente no sentía ninguna brisa a su alrededor.
 
 Sin embargo, en medio de aquella sorprendente magia óptica, eso fue lo menos que le sorprendio.
 
-Nubes negras como el abismo rotaban a su alrededor en un movimiento circular, como si estuvieran en el ojo de un huracán que desgarraba la realidad misma. Abajo, donde antes había habido una pradera verde con flores y árboles, ahora se extendía un océano turbulento, rojo como la sangre, donde violentas olas impactaban contra extrañas e enigmaticas islas. Mas que islas, aquellos peñones ciculares se asemejaban mas a meteoritos incrustrados contra el suelo.
+Nubes negras como el abismo rotaban a su alrededor en un movimiento circular, como si estuvieran en el ojo de un huracán que desgarraba la realidad misma. Abajo, donde antes había habido una pradera verde con flores y árboles, ahora se extendía un océano turbulento, rojo como la sangre, donde violentas olas impactaban contra extrañas e enigmaticas islas. Mas que islas, aquellos peñones ciculares esparcidos en aquellas aguas se asemejaban mas a meteoritos incrustrados contra el suelo.
 
-"Esto..." Trixie no encontraba palabras para expresar su conmoción. Apenas podía creer lo que veía. ¿Era Ponyville? ¡No podia serlo! Aquel paisaje infernal de ninguna forma podia ser el mismo lugar donde tantas veces habia paseado con sus amigos. ¡Esa misma mañana, había cruzado esas colinas! ¡Esto debía ser un truco!
+"Esto..." Trixie no encontraba palabras para expresar su conmoción. Apenas podía creer lo que sus ojos le mostraban. La negacion estallo en su interior. ¿Era Ponyville? ¡No podia serlo! Aquel paisaje infernal de ninguna forma podia ser el mismo lugar donde tantas veces habia paseado con sus amigos. ¡Esa misma mañana, había cruzado esas colinas! ¡Esto debía ser un truco!
 
 "¡No caeré en tus ilusiones!" gritó Trixie, en un estado de negación.
 
@@ -408,7 +406,7 @@ Era la de un gran elefante blanco ...
 
 "Ocellus, Gallus ..." no pudo contener el quejido que escapó de su boca. El mundo daba vueltas a su alrededor, el aire se le hacía escaso. Su cerebro se deuvo. No quería pensar más... no quería saber más... porque si lo hacia ...
 
-"¡Jajajaja!" Royalinda estalló en carcajadas. "Las cosas no resultan como uno espera. Lo entiendo, lo entiendo, suele pasar,  jajaja  'lo importante es seguir adelante y aprender de tus errores'. ¿No es eso algo que enseñan en tu Escuela para Tontos? Jaja Cualquiera puede aprender eso. Cualquiera menos tú, por supuesto."
+"¡Jajajaja!" Royalinda estalló en carcajadas. "Las cosas no resultan como uno espera. Lo entiendo, lo entiendo, suele pasar,  jajaja  'lo importante es seguir adelante y aprender de tus errores'. ¿No es eso algo que enseñan en tu Escuela para Tontos? Haaaa. Cualquiera puede aprender eso. Cualquiera menos tú, por supuesto."
 
 Trixie, esforzándose por no derrumbarse, respiraba con dificultad, sintiendo el sudor frío recorrer su cuerpo. Sus ojos, enrojecidos por la presión, se fijaron en el cielo sobre ella.
 
@@ -448,7 +446,7 @@ Había logrado lo que buscaba.
 
 Trixie no cambió la expresión de su rostro. Sus ojos permanecían fijos en Royalinda, observando cómo esta se levantaba de su asiento, ya sin la sonrisa burlona de antes. La luz del cuerno de Sunburst comenzó a brillar intensamente mientras preparaba un nuevo hechizo.
 
-"Ya he gastado demasiado tiempo contigo. Debo prepararme para mi ascenso en este reino... o lo que quede de él. Mi futuro será grandioso. Y tú no tendrás lugar en ese futuro, ni en el de nadie," continuó Royalinda, su voz grave y cargada de desprecio. "Considera esto un regalo especial de mi parte..."
+"Ya he gastado demasiado tiempo contigo. Debo prepararme para mi ascenso en este reino... o lo que quede de él. Mi futuro será grandioso. Por supuesto, tú no tendrás lugar en ese futuro, ni en el de nadie," continuó Royalinda, su voz grave y cargada de desprecio. "Considera esto un regalo especial de mi parte..."
 
 La luz en el cuerno de Sunburst, bajo el control de Royalinda, se intensificó. Una luz cegadora inundó la habitación, pero Trixie no apartó la mirada.
 
@@ -464,9 +462,9 @@ Dejó de resistirse.
 
 ---
 
-Salió de la habitación, aún conmocionada. Todo se había sentido muy real... Demasiado real.
+Salió de la habitación, aún conmocionada. Todo se había sentido muy real... demasiado real.
 
-Trixie sacó una botella de sidra que guardaba en su capa y, en un movimiento rápido, la destapó, vertiendo todo su contenido en su interior.
+Trixie se limpio las lagrimas que asomaban en sus ojos, sacó una botella de sidra que guardaba en su capa y, en un movimiento rápido, la destapó, para luego vertir todo su contenido de golpe en su interior.
 
 "Ahhhhhhhhhhhhhhhhhh," exhaló al terminar, apoyándose en una pared hasta dejarse caer al suelo.
 
