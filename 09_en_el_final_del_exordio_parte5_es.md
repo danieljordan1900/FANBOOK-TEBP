@@ -10,7 +10,7 @@ Final: Sujeto explota por manipulacion inadecuada de explosivos. (Duracion < 12 
 
 Estado: Revisado
 
-> Nota: "Esta es la 5º vez que termina explotando por explosivos ... ¿Que le pasa a esta poni?"
+> Nota: "Esta es la 6º vez que termina explotando por explosivos ... ¿Que le pasa a esta poni?"
 
 ```
 
@@ -206,7 +206,7 @@ Trixie abrió los ojos de par en par ante esa revelación y luego la miró con d
 
 La poni misteriosa exhaló con calma.
 
-"No quiero que malinterpretes las cosas. No soy tu ángel guardián, si eso es lo que te estás imaginando. En este momento, estoy aquí para cumplir el rol de tu guía espiritual, por decirlo de algún modo."
+"No quiero que malinterpretes las cosas. No soy tu ángel guardián, si eso es lo que te estás imaginando. En este momento, estoy aquí para cumplir el rol de ser tu guía espiritual, por decirlo de algún modo."
 
 "Haaaaa claro...", exclamó Trixie, asimilando la situación, aunque le surgio una sospecha ante la vaga explicación.
 
@@ -230,11 +230,11 @@ De pronto, toda la pasión que había impulsado a Trixie a levantarse se esfumó
 
 Más segura después de sus palabras, Summermoon se puso de pie y comenzó a avanzar por el largo pasillo cósmico.
 
-Trixie, tras escuchar la respuesta, entrecerró los ojos, desconfiada. Algo en su memoria empezaba a encajar.
+Trixie, tras escuchar la respuesta, entrecerró los ojos, desconfiada. Algo en su memoria empezaba a lanzar una alerta.
 
 "Trixie no necesita estar viva para darse cuenta cuando alguien intenta jugar con ella", murmuró, su mirada clavándose en la espalda de Summermoon.
 
-"No es mi intención", respondió Summermoon con seriedad, dándose la vuelta para enfrentarla. "Necesitas ayuda."
+"No es mi intención", respondió dándose la vuelta Summermoon con seriedad. "Necesitas ayuda."
 
 "No la necesito de alguien que apenas se esfuerza en engañar a los demás como si fueran tontos", replicó Trixie, más desconfiada que nunca, poniéndose de pie de golpe.
 
@@ -264,7 +264,7 @@ Trixie se quedó perpleja ante lo que veía.
 
 Summermoon, que hasta ese momento se había mostrado con un porte serio y amigablemente sospechoso, ahora... estaba en el suelo, riendo a carcajadas incontrolables. Con una sonrisa descomunal cruzando su rostro, de oreja a oreja, como si de pronto hubiera escuchado el chiste más gracioso del mundo, o que tal vez, hubiera caído víctima de un hechizo de hilaridad.
 
-Tan anormal era esta risa, que Trixie retrocedió, sintiendo un rechazo instintivo. No sabía cómo reaccionar ante semejante espectáculo.
+Tan anormal era esta risa, que Trixie retrocedió, sintiendo un rechazo instintivo. Si bien no percibia que fuera una risa malvada, tampoco se sentia bondadosa, se podria describir mas bien, como exagerada. No sabía cómo reaccionar ante eso.
 
 Y, sin embargo, de alguna manera, aquella conducta parecía encajar mejor con la verdadera naturaleza de la misteriosa poni.
 
@@ -293,3 +293,37 @@ De repente, Trixie se encontró flotando en el aire, envuelta en una nebulosa de
 Sin titubear, arrojó a la unicornio a su interior.
 
 "¡Esperaaaaa!", gritó Trixie antes de desaparecer a través de la puerta.
+
+---
+
+"No quiero hacer esto..." 
+
+"Entiendo que intentes ser la poni correcta que tus amigos esperan que seas. Sin embargo, asumir la culpa y ser una martir no cambiara el futuro que le espera a tus amigos. ¿Eres la poni problematica que termino sacrificandose por los demas para limpiar sus culpas o la gran y poderosa Trixie quien burlo la garra del destino una vez mas?"
+
+Trixie no encontro palabras para poder responder. 
+
+"No voy a repetirte mas este punto. Necesito una respuesta. Esta charla tambien me ha cansado." termino de decir Summermoon, quien volvio a su asiento y bebio su jarra de sidra de golpe antes de dejarla a un lado. 
+
+Un silencio invisible se levanto entre ambas, como si las distancias hubieran cambiado y cada una estuviera en un mundo distinto.
+
+Trixie bebio largamente de su jarra de sidra mientras mantenia una mirada perdida en la multitud de ponis que festejaban. Claras eran las risas de todos aquellos que disfrutaban despreocupados la noche que daria paso al dia mas largo en sus vidas.
+
+Tras terminar, se mantuvo quieta, respirando con intensidad.
+
+Summermoon que la observaba todo ese tiempo con rostro oscurecido por las sombras de su propia melena e iluminado por momentos por las luces multicolores de la fiesta, le espero por todo ese tiempo, hasta que ...
+
+"¿Ya?" le apremio rompiendo el silencio.
+
+"¿Starlight estara a salvo?" pregunto Trixie con una voz grave.
+
+"Si" respondio firme Summermoon
+
+"Los niños ... los demas ... ¿Estaran bien?"
+
+"Si"
+
+Un nuevo intervalo de silencio se levanto entre ellas. Totalmente ajenas a luz y las voces en la habitacion. Finalmente , despues de un tiempo de espera angustiantes, Trixie finalmente respondio.
+
+"Hagamoslo"
+
+
