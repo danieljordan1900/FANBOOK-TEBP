@@ -148,7 +148,7 @@ La nebulosa sensación que la envolvía empezó a desvanecerse. De repente, su c
 
 No era el fondo del gran atrio del castillo, podia sentirlo.
 
-Oscuridad. Sus ojos estaban cerrados, pero sentía que podía abrirlos... solo que algo la detenía.
+Oscuridad. Sus ojos estaban cerrados, sentía que podía abrirlos... pero algo la detenía.
 
 ¿Qué había más allá?
 
