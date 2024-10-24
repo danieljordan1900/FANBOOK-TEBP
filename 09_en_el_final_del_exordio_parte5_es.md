@@ -162,7 +162,7 @@ Remoto, lejano y nebuloso. Un largo pasillo cósmico se reveló ante su vista.
 
 "¿Ha?" exclamó Trixie en voz alta, desconcertada. No era lo que esperaba. ¡¿Qué esperaba, exactamente?!
 
-Sorprendida, comenzó a hablar consigo misma. "¿Esto es...?"
+Sorprendida, completamente vestida como si estuviera lista para un espectaculo, Trixie se encontraba de pie en medio de un extraño pasillo. Sin entender aun donde estaba, comenzó a hablar consigo misma. "¿Esto es...?"
 
 "Un pasillo", respondió otra voz detrás de ella, como si le contestara su pregunta retórica.
 
@@ -293,6 +293,34 @@ De repente, Trixie se encontró flotando en el aire, envuelta en una nebulosa de
 Sin titubear, arrojó a la unicornio a su interior.
 
 "¡Esperaaaaa!", gritó Trixie antes de desaparecer a través de la puerta.
+
+---
+
+"Habia una vez, en el futuro, un viejo, muy viejo y muy malo, que vivia en un lugar muy lejano. Este viejo enojado, no le gustaba el mundo donde vivia, asi que constantemente planeaba formas de como destruirlo. Lo habia hecho desde hacia mucho tiempo y siempre fallaba, una y otra vez, realmente era un viejo malvado muy lamentable..."
+
+Bebiendo de su jarra, Trixie escuchaba con atencion la historia.
+
+"Y un dia. de pronto, este viejo malvado tubo una brillante idea. Viajar en el tiempo para asi destruir el mundo. Claro todos saben que hacer tales cosas, es siempre una tarea peligrosa y muy complicada, asi que el viejo malvado se preparo bastante para tener exito en su proyecto. Paso a paso, comenzo a avanzar en su plan, acercandose a su tan obsesiva meta. Sin embargo, como siempre las cosas le salian mal, en algun momento, alguien o varios por algun accidente, descubrieron lo que estaba haciendo. Asi, sin perder tiempo, por asi decirlo, (risas), estas personas informaron asu vez a sus lideres quienes descidieron tomar accion para detener al viejo malvado de inmediato"
+
+Summermoon dejo de narrar un momento bebio de su jarra y comio unos dulces. Luego continuo.
+
+"Estos lideres estaban encabezados por un princesa poni. Una princesa alicornio particularmente  muy amigable y muy sabia..." hablo Summermoon con un guiño particular hacia Trixie.
+
+Los ojos de la unicornio se dilataron.
+
+"Si, y esta alicornio tan lista, descidida a acabar de una vez por todas con este viejo malvado, viajo en el tiempo al pasado para asi desbaratar los planes del fin del mundo que ese viejo estaba preparando, y despues de una descisiva batalla, junto con la mas grande y poderosas de sus amigas, logro derrotarlo definitivamente, salvando asi a todos y por ende su futuro." concluyo Summermoon
+
+Habia una sonrisa extraña en el rostro de Summermoon al terminar. Como si contara un chiste que solo ella entendia. A Trixie esto le parecio extraño e inquietante.
+
+
+
+
+
+
+viajes en el tiempo
+-> summermoon narra a Tr el viaje en el tiempo de twilight hacia el pasado creando una linea de tiempo donde Dhona muere y surge royalinda
+-> Trixie pregunta porque esta dispuesta a ayudarla a pesar de ser un emisario de la oscuridad, Summermoon explica pate de sus intenciones
+-> Trixie tiene dudas de si participar o no de los objetivos de 
 
 ---
 
