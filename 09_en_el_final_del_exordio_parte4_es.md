@@ -126,7 +126,7 @@ Apenas aferrado a las rocas flotantes, el capitán evaluó los daños que sufrí
 
 La presión en el aire aumentó aún más. El colapso del interior del castillo había comenzado.
 
-En medio del puente, que se resquebrajaba bajo la creciente tensión, el monstruo YRAG luchaba por contener las enormes piedras que caían sobre él. En el extremo del balcón, Ocellus era arrastrada entre gritos de negación por sus compañeros.
+En medio del puente, que se resquebrajaba bajo la creciente tensión, el monstruo YRAG luchaba por contener las enormes piedras que caían sobre él. En el extremo del mismo, que conducia al balcón, Ocellus era arrastrada entre gritos de negación por sus compañeros.
 
 El polvo, el humo y las llamas verdes llenaron el aire, nublando la vista de todos. Y entonces, en medio de un suspiro, todo comenzó a caer.
 

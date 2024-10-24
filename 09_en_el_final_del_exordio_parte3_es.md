@@ -611,7 +611,7 @@ Con un último esfuerzo, giró la cabeza hacia el otro lado del puente, donde lo
 
 "Cuida de ellos... por favor..." murmuró Trixie, su voz apenas audible entre las llamas esmeralda y las sombras que se cernían sobre ella.
 
-En ese instante, una última explosión de luz iluminó el atrio y, entonces, todo se desvaneció.
+De repente, una última explosión de luz iluminó el atrio y, entonces, todo se desvaneció.
 
 //	---------------------
 
